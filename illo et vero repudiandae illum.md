@@ -1,10 +1,10 @@
 ---
 title: illo et vero repudiandae illum
-author: Jorge Veum
-date: Thu Mar 17 2022 18:54:02 GMT-0400 (Eastern Daylight Time)
+author: Dominick Dare DDS
+date: Mon Dec 27 2021 01:31:16 GMT-0500 (Eastern Standard Time)
 ---
-Dolorum sed consequatur distinctio nostrum recusandae. Reprehenderit quaerat aut necessitatibus molestiae ut molestias eos quidem. Doloremque consequuntur dolor voluptatum. Et placeat quam non. Rem exercitationem fugit corrupti excepturi voluptas suscipit et tempore. Exercitationem esse quod.
+Blanditiis nulla officia assumenda sunt suscipit earum et officiis. Aut consectetur ipsa facere dolor. Ut deleniti provident maiores sit autem amet suscipit. Earum autem et sint inventore est. Asperiores at error id laudantium quibusdam dolores cupiditate esse. Et pariatur iste voluptatem.
 
- Ducimus qui vitae voluptatem rerum quaerat dolorem ea illo quasi. Cupiditate laudantium aperiam sit enim debitis. Itaque inventore molestiae in necessitatibus.
+ Voluptas quos dignissimos sed nesciunt qui qui accusantium. Qui quis deleniti illo error ut. Aut tempore repellendus in aut nihil doloremque blanditiis ea. Ut mollitia aspernatur id exercitationem asperiores est inventore consequatur distinctio. Vel omnis dolorem et vitae velit.
 
- Et accusantium molestiae qui iste in beatae. Laudantium dolorem quae culpa fugiat magnam facilis praesentium sit autem. Perspiciatis perferendis quia quis hic eveniet. Sunt eius modi est sint dignissimos nisi esse. Cum at assumenda aliquid voluptates aperiam qui adipisci.
+ Quaerat temporibus voluptatem perspiciatis est neque eligendi fuga. Iusto aliquam impedit. Aut incidunt omnis vel id quia unde et tenetur consequatur. Qui non excepturi inventore qui voluptas autem quia. Repudiandae est et temporibus. Dolores totam itaque voluptatum vel sequi placeat soluta eius.
