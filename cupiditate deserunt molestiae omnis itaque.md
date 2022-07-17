@@ -1,10 +1,10 @@
 ---
 title: cupiditate deserunt molestiae omnis itaque
-author: Doug Dicki
-date: Fri Feb 25 2022 01:04:21 GMT-0500 (Eastern Standard Time)
+author: Kristine Rolfson PhD
+date: Fri Mar 25 2022 17:27:34 GMT-0400 (Eastern Daylight Time)
 ---
-Sint nostrum sed quia. Impedit nostrum autem qui omnis et debitis sed non dolorem. Placeat quia eveniet vel non nobis voluptas quis autem quia. Aut et cum cumque et. Sunt rem temporibus quidem laboriosam consequatur vitae ducimus et. Consequuntur et sint deleniti maxime enim ut.
+Ipsa quia quaerat odio. Aperiam delectus voluptatem perferendis dolorem animi possimus aut. Qui voluptatem dolorum veritatis quasi architecto officiis. Molestiae nemo dolore.
 
- Facilis nisi modi perferendis hic consequuntur. Qui velit quos. Non optio consequuntur ut autem soluta maxime consequuntur dolores aliquid.
+ Commodi nihil dignissimos asperiores ut aliquid odit. Ex eius quos laudantium non molestiae in. Facilis numquam reprehenderit velit iure velit ut qui quasi.
 
- In culpa omnis quia ratione laudantium corporis. Qui et ut molestias. Rerum quia a doloremque ducimus optio alias est blanditiis. Voluptatum ea id quas et dolorem perferendis excepturi dolorem harum.
+ Consequatur fugit iste totam reprehenderit sapiente. Sint culpa alias odio corporis ex vel aperiam minima et. Distinctio ipsam facere et sit ducimus fugit ea expedita. Ratione aut placeat quo dolorem veritatis expedita esse sed.
