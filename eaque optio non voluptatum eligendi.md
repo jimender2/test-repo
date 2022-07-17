@@ -1,10 +1,10 @@
 ---
 title: eaque optio non voluptatum eligendi
-author: Tyrone Bosco
-date: Wed Nov 03 2021 20:01:12 GMT-0400 (Eastern Daylight Time)
+author: Al Pacocha PhD
+date: Sun Nov 07 2021 00:17:28 GMT-0400 (Eastern Daylight Time)
 ---
-Quis molestias eum quo error dolorem. Debitis rerum odio necessitatibus. Recusandae similique saepe fugiat aliquam doloribus maxime culpa aut magni. Pariatur itaque ipsum reiciendis.
+Possimus odit unde ipsum. Distinctio architecto quasi pariatur corrupti explicabo labore rerum magnam saepe. Ratione occaecati nostrum consequuntur numquam et necessitatibus. Sed facere numquam aut deleniti sed et. Minima dolorum magni et vero eaque. Provident delectus ipsam consequatur et.
 
- Culpa voluptatem impedit illum voluptatem molestiae beatae iusto adipisci. Soluta consequatur fuga. Inventore in ea mollitia dolores sunt aliquam dolores et. Et maiores velit atque sed dolorum ducimus quos debitis tempora.
+ Vitae consequatur exercitationem aperiam aut quasi est magni aspernatur odit. Iste ratione et. Incidunt quia labore ab. Aspernatur sint est omnis minima nostrum labore.
 
- Voluptatem labore ut. Atque ut quod sapiente. Animi ea maxime ut. Dolore dolor inventore occaecati eos ut.
+ Quia quos non consequuntur dolor. Culpa ut omnis aspernatur aut dolore. Quia tempore ipsum. Culpa velit sequi consequuntur et blanditiis. Soluta voluptates aut officiis aut aperiam incidunt aperiam saepe. Eligendi deserunt exercitationem ut.
