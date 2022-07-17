@@ -1,10 +1,10 @@
 ---
 title: dolorem et a doloribus est
-author: Ms. Angel Collier
-date: Wed Jan 12 2022 00:20:57 GMT-0500 (Eastern Standard Time)
+author: Warren Gulgowski
+date: Mon Oct 18 2021 15:12:39 GMT-0400 (Eastern Daylight Time)
 ---
-Quis repellendus magni iure. Est repudiandae illo. Ipsa provident eaque reprehenderit porro.
+Dolorem reprehenderit quidem porro harum quasi exercitationem recusandae velit. Fuga accusamus velit corrupti. Aut est aspernatur perferendis qui similique ea. Et qui commodi. Voluptatem laboriosam reprehenderit repudiandae quisquam laboriosam.
 
- Id est distinctio facilis officia consequatur aut odio facilis. Reiciendis eveniet quo eius. Dolorum suscipit deleniti et. Omnis aut ratione accusantium aut non non hic consequatur hic.
+ Nisi atque voluptatum dolorem. Sapiente et itaque quaerat et cumque aut aut. Ut distinctio tempora et autem reprehenderit rerum sit quam quis. Labore et est laboriosam voluptatibus velit sit cum maxime voluptas. Quisquam magni quia ex officia accusantium ut.
 
- Illum doloribus accusantium incidunt sequi voluptas nostrum maiores unde ut. Sit beatae accusamus qui. Et blanditiis culpa. Praesentium iure qui eum rerum accusantium non.
+ Culpa recusandae quae nesciunt animi voluptatem officia quidem. Velit sit sed sit aspernatur qui omnis fugiat at. Reiciendis sed quod facilis sed magni provident est assumenda illo. Perferendis minus aliquam pariatur quasi itaque est. Aperiam dolorem incidunt non recusandae inventore quis omnis. Quia sed impedit sit provident perferendis repellat amet veritatis.
