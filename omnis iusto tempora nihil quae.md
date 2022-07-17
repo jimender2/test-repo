@@ -1,10 +1,10 @@
 ---
 title: omnis iusto tempora nihil quae
-author: Hugh Hammes
-date: Sat Aug 28 2021 05:45:51 GMT-0400 (Eastern Daylight Time)
+author: Curtis Olson MD
+date: Thu Dec 02 2021 20:59:17 GMT-0500 (Eastern Standard Time)
 ---
-Voluptates sequi a maxime ipsum ut quaerat magnam rerum. Architecto fugiat ut dicta enim modi natus qui suscipit. Laboriosam iusto dignissimos aut nesciunt id sit velit doloremque. Vitae et ipsum ipsa accusantium voluptas quia. Totam a perspiciatis. Velit vel officia et.
+Ut quae ea minus voluptatibus voluptas. Incidunt saepe corrupti placeat aliquid ducimus non et fuga vel. Ut aut iste debitis odit aut iusto velit reiciendis. Dolor laudantium tenetur impedit enim et dolorum unde id expedita.
 
- Aliquid quo dolor aut. Officiis beatae ipsam qui accusantium eaque perferendis sit. Tempore rerum quidem voluptas et enim. Sunt voluptatem expedita quaerat aut deleniti.
+ Officia quaerat possimus optio dolor delectus quis consequatur laboriosam qui. Commodi et beatae necessitatibus enim. Error mollitia illum asperiores omnis unde et ipsa in et.
 
- Optio non aut. Eaque esse explicabo. Similique perferendis rem voluptate et quia non deleniti qui quis. Ab distinctio sequi placeat numquam consequatur sed omnis. Consequatur possimus magni soluta sed ipsam.
+ Odio distinctio praesentium eum. Distinctio eos eum quis. Qui cum est numquam.
