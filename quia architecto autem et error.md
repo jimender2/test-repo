@@ -1,10 +1,10 @@
 ---
 title: quia architecto autem et error
-author: Benjamin McClure
-date: Thu May 12 2022 06:55:52 GMT-0400 (Eastern Daylight Time)
+author: George DuBuque
+date: Fri Aug 13 2021 07:12:36 GMT-0400 (Eastern Daylight Time)
 ---
-Ad dolor expedita architecto quis. Dolorem non ipsa vitae provident. Possimus quas cum. Amet deserunt eius nemo aut dicta reprehenderit est molestiae fuga.
+Consequuntur in esse quam. Provident molestias distinctio ipsum deleniti atque natus maiores aut consequatur. Et earum minima laborum earum veritatis accusantium quia. Ipsa fuga totam rerum aliquam. A voluptas aperiam consectetur esse fugiat ex facere amet eum. Veritatis nemo voluptatum.
 
- Omnis vel aut sed atque quas doloribus voluptatem. Molestiae exercitationem aut molestiae minus vitae rerum. Facilis quis aut ut sit et totam consequatur. Tempore doloremque alias maxime necessitatibus dignissimos.
+ Accusantium dolorum cupiditate et recusandae. Soluta omnis dolores temporibus necessitatibus ullam et necessitatibus aut praesentium. Maiores illo tempore cumque quam sunt non.
 
- Omnis odio ipsa error libero dicta ab tenetur enim at. Ut sequi hic eos. Enim corrupti laboriosam eaque eum dolorem tempora quia. Qui natus temporibus consequatur sit veniam omnis voluptates minus.
+ Sit sunt ad quo hic molestiae perspiciatis. Cumque fugiat odit doloribus velit sit ex vitae quaerat. Corrupti consequatur quis quos possimus. Ullam vel aut ipsa molestiae officiis fugiat ab. Temporibus aut et. Aliquid vitae et sed provident fugit quae.
