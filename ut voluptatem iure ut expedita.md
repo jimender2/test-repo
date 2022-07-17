@@ -1,10 +1,10 @@
 ---
 title: ut voluptatem iure ut expedita
-author: Dr. Kelly Parker
-date: Tue Sep 14 2021 07:01:42 GMT-0400 (Eastern Daylight Time)
+author: Lynn Jerde
+date: Sat Jun 11 2022 20:28:39 GMT-0400 (Eastern Daylight Time)
 ---
-Quam a temporibus sint quidem expedita voluptas occaecati quasi. Incidunt beatae enim sit dignissimos cumque. Qui velit sit sit possimus et.
+Rem et sed enim quisquam quas adipisci harum. Amet dolorum hic voluptas labore ut. Recusandae ut temporibus reprehenderit deleniti earum porro similique voluptas autem. Est ex tempore minima quibusdam voluptas quo cumque. Est ipsum ut iure quis sequi laborum voluptates.
 
- Deleniti iste aut saepe expedita. Dolor deserunt hic corrupti vel repellat iure. Rerum dignissimos sint facere tempore et pariatur eos.
+ Occaecati et voluptatem eum sint. Tempora corrupti eos corporis nam possimus odit quasi. Ea sit reprehenderit rerum minus quo illo quis inventore. Ab iusto odit consectetur dignissimos et qui sint at voluptatem. Ratione quod illo.
 
- Incidunt dolores iusto enim voluptatibus dicta quis et ratione sint. Dignissimos quasi cum fugit eaque error eveniet vitae dolor est. Autem fugit esse est et aperiam molestias qui asperiores.
+ Labore ex velit non exercitationem numquam. Consequatur hic itaque ea autem doloremque architecto et. At qui molestias molestiae sapiente voluptas voluptatem provident aut. Velit laudantium est natus. Explicabo eos nesciunt nihil inventore tenetur sint id qui. Ea est sed quia deserunt.
