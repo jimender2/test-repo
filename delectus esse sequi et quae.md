@@ -1,10 +1,10 @@
 ---
 title: delectus esse sequi et quae
-author: Marlon Goodwin
-date: Mon Oct 18 2021 13:24:42 GMT-0400 (Eastern Daylight Time)
+author: Dexter Cormier MD
+date: Wed Oct 27 2021 05:02:38 GMT-0400 (Eastern Daylight Time)
 ---
-Quam impedit similique quo eveniet dolore rem aut officiis officiis. Maiores voluptatibus quia assumenda. Omnis eum provident distinctio qui quo itaque qui alias.
+Nisi culpa est ut esse ut aut. Eius repellendus illum. Exercitationem illum libero voluptas enim debitis.
 
- Suscipit sit explicabo repudiandae. Voluptates blanditiis cum dignissimos porro similique et eos. Aspernatur soluta illo expedita ut quae accusamus atque occaecati. Omnis et nisi laudantium maxime similique vero quia. Reprehenderit placeat deleniti veniam commodi hic aut.
+ Maxime qui qui ex aut odit suscipit. Vitae architecto voluptas facere eum. Minima expedita qui. Perferendis consectetur voluptatem aliquid ipsa dolorem.
 
- Accusamus accusamus id magni aliquam ad sed placeat perferendis. Architecto illo fugiat. Sunt qui corrupti nulla reiciendis dicta deserunt qui assumenda. Voluptatem omnis qui mollitia quo sed tenetur odio voluptatem modi. Cumque nam dolor.
+ Non dolores reprehenderit cupiditate nesciunt ducimus eos. Molestias eveniet aut autem ea libero nobis quia placeat repellat. Voluptatem sed et. Sapiente est voluptate sit corrupti inventore explicabo.
