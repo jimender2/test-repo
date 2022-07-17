@@ -1,10 +1,10 @@
 ---
 title: error optio dolorem corrupti omnis
-author: Hannah Crooks DDS
-date: Wed Oct 27 2021 17:29:50 GMT-0400 (Eastern Daylight Time)
+author: Tracey Reichert
+date: Tue Oct 12 2021 21:18:47 GMT-0400 (Eastern Daylight Time)
 ---
-Et non fugiat iusto maiores. Facilis rerum et dignissimos voluptatem quas sit rerum animi cupiditate. Voluptatem perferendis molestiae alias minus voluptas. Et minus voluptatibus explicabo quasi in ut.
+Vero voluptas corrupti ratione delectus minima sed aut dolorem. Maiores dolor veritatis. Eius consequatur quo unde. Ad aut et temporibus sit quia dolor nobis architecto. Voluptatem minus blanditiis aut quisquam nemo sit. Commodi tempora ex excepturi enim.
 
- Pariatur ipsam ut sit. Sed dolor aut cupiditate quibusdam ullam occaecati. Similique quos ipsum nisi autem odit. Consequatur et animi voluptatum praesentium repellat impedit quasi et unde. Molestias molestiae minima qui non dolore voluptas. Quos non expedita nemo.
+ Quam voluptatibus et nostrum possimus sint. Asperiores omnis quam eligendi nihil dolorem quisquam. Dolor facere doloremque.
 
- Saepe et illum ducimus aut quidem recusandae sunt. Voluptas atque modi incidunt accusantium consequuntur quibusdam. Eius nesciunt in possimus debitis nulla.
+ Fuga recusandae sed nostrum fugiat. Et voluptas velit aut quis. Sunt mollitia ipsam quaerat dolor similique ullam esse. Praesentium repudiandae quasi. Iste quis pariatur eius.
