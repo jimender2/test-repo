@@ -1,10 +1,10 @@
 ---
 title: ipsum non nobis perspiciatis aliquam
-author: Gene Breitenberg MD
-date: Fri Dec 03 2021 17:15:35 GMT-0500 (Eastern Standard Time)
+author: Tricia Harber PhD
+date: Tue Sep 14 2021 23:39:17 GMT-0400 (Eastern Daylight Time)
 ---
-Voluptates voluptas dolorem ut inventore repellendus consectetur ratione veniam dolor. Praesentium hic earum voluptatem et dolore ipsa. Sapiente qui sed consequuntur.
+Voluptate iure porro aspernatur ea repellendus. Omnis perspiciatis aut vel omnis aut itaque. Explicabo qui omnis amet rerum repudiandae at amet sed. Qui amet debitis autem qui aut. Commodi ad explicabo ut sint laboriosam numquam nihil. Molestiae nihil id non rerum.
 
- Qui dolorem qui rerum dignissimos laboriosam libero iure. Consequatur distinctio vitae delectus. Delectus maiores voluptatem expedita dolorem excepturi. Quod officia repellendus dignissimos sit officia.
+ Ut nam laudantium. Voluptas incidunt porro minima inventore cupiditate. Vel deleniti eos vel facilis veritatis. Est facilis qui nisi impedit et voluptas. Fugiat modi consequatur natus ut omnis enim error et.
 
- Sed distinctio libero quam a voluptates qui exercitationem est ex. Qui rerum possimus nulla iure. Hic eveniet eum veritatis sapiente corrupti sint. Aspernatur magni inventore perferendis iste sed veritatis. Magnam tempora voluptatem illum vel quia vel pariatur sequi.
+ Voluptates voluptatem repudiandae illo sint est voluptas. Adipisci impedit nulla quaerat nulla officiis. Voluptate soluta facere illo eveniet officia eum qui. Ab dicta suscipit eaque.
