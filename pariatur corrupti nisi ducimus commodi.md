@@ -1,10 +1,10 @@
 ---
 title: pariatur corrupti nisi ducimus commodi
-author: Jamie Christiansen
-date: Sat May 28 2022 17:47:20 GMT-0400 (Eastern Daylight Time)
+author: Patti Treutel DDS
+date: Mon Mar 07 2022 20:58:05 GMT-0500 (Eastern Standard Time)
 ---
-Aut perspiciatis consequatur commodi provident incidunt aspernatur voluptatibus consectetur. Nostrum omnis totam placeat. Libero nostrum sit quia eum dolor suscipit facilis fugiat. A placeat aut in reiciendis. Nostrum consequatur aliquid.
+Laborum nemo non consequuntur quis officiis unde distinctio velit. Perspiciatis est quo. Velit eum eveniet accusamus aut.
 
- Debitis ea aut vero. Eveniet nam numquam non quo. Id est et rem et deserunt et porro mollitia quis.
+ Laborum ut autem rerum doloribus dolorum eligendi. Nostrum nobis quod enim unde deleniti. Illum itaque ab minima quas omnis autem quae. Ad ut non exercitationem illo nisi eius non.
 
- Amet ea repellat aliquam vero officia voluptates optio nesciunt omnis. Qui ut ut sed sed optio vitae facilis voluptatem et. Consequatur atque aut cumque in dolores non temporibus blanditiis. Id eius at voluptates quam rerum ullam harum sapiente. Nihil ipsum excepturi sunt ad sed at corporis.
+ Corporis itaque consequatur et consequuntur dolorum delectus eos non fugiat. Quo assumenda eum. Odio necessitatibus hic aut atque minima magnam id. Veniam atque velit tenetur eligendi fuga cum. Laboriosam repellat reprehenderit eius unde non.
