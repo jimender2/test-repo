@@ -1,10 +1,10 @@
 ---
 title: necessitatibus ipsum cumque officiis nostrum
-author: Rick Baumbach
-date: Sun Jul 10 2022 08:49:57 GMT-0400 (Eastern Daylight Time)
+author: Lee Brakus DDS
+date: Wed Mar 30 2022 21:38:59 GMT-0400 (Eastern Daylight Time)
 ---
-Animi ex qui aut eligendi ipsum et illum voluptatum. In autem tenetur rerum id nostrum architecto aliquid. Vel aut fugit molestiae. Placeat et praesentium magni debitis ea.
+Omnis beatae deserunt asperiores est eos ipsam. Enim vel expedita ut asperiores veritatis iusto architecto. Illum expedita quasi eos labore perferendis labore blanditiis voluptates.
 
- Voluptatibus blanditiis reiciendis qui repudiandae voluptatem rerum nostrum dolorem aliquam. Accusantium beatae repudiandae corporis rerum similique a ex. Ut nihil aperiam vero voluptas veritatis eum. Eum et facilis sapiente error provident quaerat.
+ Aliquid asperiores aliquid est. Occaecati est quo explicabo sapiente ratione reprehenderit similique enim. Vero temporibus laborum odit consequatur non beatae minus cupiditate.
 
- Similique impedit eos sed qui illo necessitatibus et enim. Veritatis enim nam dolores rerum quidem qui. Dolorum sed non accusantium aut in quidem quibusdam.
+ Consequatur aut fugiat voluptatem. Consequuntur deserunt suscipit culpa nisi et ratione sunt. Magnam nobis adipisci omnis illum. Est ex reprehenderit at aut.
