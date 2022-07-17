@@ -1,10 +1,10 @@
 ---
 title: aut tenetur aut placeat eligendi
-author: Myron Schulist
-date: Thu Dec 09 2021 04:24:42 GMT-0500 (Eastern Standard Time)
+author: Ronald Wolff
+date: Tue Jul 05 2022 09:36:05 GMT-0400 (Eastern Daylight Time)
 ---
-Optio dicta praesentium corrupti incidunt laudantium non aliquid quibusdam. Minima voluptates suscipit sunt velit qui sed. Totam ex voluptas itaque sit officia. Enim deserunt et saepe perferendis.
+Facere totam velit. Eum aspernatur enim cumque consequatur. Sed excepturi culpa soluta odit vero.
 
- Labore libero praesentium et. Porro sequi sint error velit ratione voluptatem facere natus mollitia. Dolore nobis ut et ipsam. Quaerat commodi fugiat hic qui est temporibus non et. Optio harum aliquam.
+ Rerum aperiam ut ut et. Odio doloremque fuga et. Non reprehenderit maiores magni sed sed earum perspiciatis provident dolore. Consectetur non labore et impedit. Quas ut sed in animi corporis. Suscipit velit animi.
 
- Sunt voluptatem non et maxime similique aut eius. Cum voluptatum nam necessitatibus et ut voluptatem. Consectetur nulla sequi.
+ Qui laborum atque. Est sed magni est beatae assumenda ut exercitationem. Et et perferendis sequi dolorem omnis quidem.
