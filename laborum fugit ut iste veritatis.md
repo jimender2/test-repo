@@ -1,10 +1,10 @@
 ---
 title: laborum fugit ut iste veritatis
-author: Chelsea Bartoletti V
-date: Sat Sep 18 2021 14:38:23 GMT-0400 (Eastern Daylight Time)
+author: Emily Rippin
+date: Tue Nov 02 2021 21:17:46 GMT-0400 (Eastern Daylight Time)
 ---
-Tenetur perspiciatis neque et praesentium assumenda corrupti nihil. Vel sunt rem perferendis. Tempora praesentium non vero doloribus perferendis.
+Officia voluptatem rerum rerum facere quisquam. Id qui sit quam ab cum nulla. Aut in fuga et saepe sed dicta reiciendis. Dicta corporis iure. Dignissimos corporis voluptas ab ea.
 
- Optio quam aut nobis eos fugit numquam odio sunt blanditiis. Ut labore culpa magni iste libero. Sed omnis sint. Aut vel enim vitae. Voluptatem quis voluptatum aut est velit aperiam et doloribus voluptatem. Neque et reiciendis velit aut.
+ Laudantium rerum sunt voluptate dolores rerum illum harum qui incidunt. Consequuntur qui nemo quo vel optio porro suscipit. Ut sed sit deserunt quod qui sed. Fuga quaerat eum quisquam qui sed.
 
- Aut fugit et odit laboriosam nesciunt illum quas est. Veniam ut porro officiis ducimus maxime error. Id mollitia eligendi reprehenderit animi aperiam tempore velit quo.
+ Delectus hic sunt necessitatibus voluptate repellat cum. Officia et magni illo ad. Quo eum sunt omnis vitae neque non temporibus nisi. Consequatur assumenda perspiciatis est ea voluptas libero. Quam qui odio sint aut omnis rem odit at. Est odit libero reprehenderit quia vitae in.
