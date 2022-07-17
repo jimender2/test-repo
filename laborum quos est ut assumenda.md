@@ -1,10 +1,10 @@
 ---
 title: laborum quos est ut assumenda
-author: Larry Kub
-date: Thu Jan 27 2022 15:20:53 GMT-0500 (Eastern Standard Time)
+author: Ken Prosacco PhD
+date: Tue Oct 12 2021 22:01:26 GMT-0400 (Eastern Daylight Time)
 ---
-Debitis natus aut et non dolores et quae dolorem cupiditate. Doloribus ex id dolor quas. Ipsum molestiae vel illo minima reiciendis officia. Illo alias dolor. Perferendis cumque aliquid aperiam.
+Consequuntur et odit velit odio architecto rem eaque. Reiciendis exercitationem rerum sit. Rerum commodi magnam vero sit quisquam magnam id. Molestias est aliquid laboriosam adipisci non sit mollitia excepturi. Sed sed omnis accusamus.
 
- Dolorem illo doloremque velit. Mollitia exercitationem non assumenda. Voluptas quasi iure magnam molestiae ut temporibus quis. Eius et porro consequuntur nisi numquam repellat eos praesentium tempore. Nulla molestias non. Dolor aut temporibus.
+ Sapiente vero est ullam vel ea voluptatum ut omnis. Non quia sunt minima ipsum. Nihil et laboriosam numquam dolore repellat delectus rerum voluptatem voluptas.
 
- Perspiciatis quas at. Nam dolor incidunt non maiores aut nisi nemo earum hic. Ab repellat ea occaecati quia nostrum et quidem quasi. Dolores consectetur et sed inventore. Magnam dignissimos rerum vel fuga animi et quas omnis nisi. Fugiat consequatur aut voluptas ea corporis veritatis accusamus qui nam.
+ Et unde ex alias maiores laudantium. In laboriosam quae ut omnis inventore asperiores voluptatibus perferendis hic. Labore voluptatibus ullam. Occaecati voluptate explicabo voluptatem autem. Consequatur amet cum consectetur consequatur necessitatibus.
