@@ -1,10 +1,10 @@
 ---
 title: enim qui molestias atque odit
-author: Ivan Smitham Sr.
-date: Fri Dec 10 2021 02:51:50 GMT-0500 (Eastern Standard Time)
+author: Bobby Dach DDS
+date: Sat Oct 09 2021 18:51:03 GMT-0400 (Eastern Daylight Time)
 ---
-Soluta maiores tempora. Perspiciatis voluptas nisi. Placeat dolore rerum et qui sit error hic et. Eveniet veritatis non voluptate. Cumque tenetur consequuntur doloremque ad molestiae repudiandae beatae.
+Sint ipsa error repudiandae vero iure qui. Ea deleniti est omnis error in qui sit illo dolorem. Porro inventore a. Aperiam illo molestiae. Vel est excepturi voluptatem quos ipsum aut corporis id.
 
- Delectus officiis accusamus ut ut ea earum ratione. Quo consequatur maxime omnis ipsa id consequatur. In error deserunt voluptatem sit suscipit. Mollitia est iste aliquid adipisci praesentium. Tempora ut eveniet minima autem fugit natus ullam.
+ Et commodi doloremque consectetur voluptatum deleniti ullam dolorem illo ipsum. Numquam dolorum necessitatibus quasi qui ut laboriosam maiores accusamus et. Labore soluta soluta. Eum id animi sunt accusamus est at. Laudantium est perspiciatis ut qui perspiciatis. Quia est a ipsa dolorum excepturi consequatur corporis.
 
- Non quo est incidunt quas temporibus dolores modi aspernatur consequatur. Aut quis neque voluptatum id quod nesciunt. Aut earum rerum. Earum repellendus sunt expedita.
+ Dolor et ea suscipit dolor enim. Qui dicta voluptatem officia sed aut a alias. Magnam ut dolores optio nulla voluptates dolorem laboriosam. Consequatur sunt delectus et ratione velit libero nihil. Officiis iste nemo. Et sint ut alias aspernatur fuga quia qui modi perspiciatis.
