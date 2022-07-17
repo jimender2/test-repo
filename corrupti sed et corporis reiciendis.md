@@ -1,10 +1,10 @@
 ---
 title: corrupti sed et corporis reiciendis
-author: Sammy Thompson
-date: Mon Nov 01 2021 14:32:01 GMT-0400 (Eastern Daylight Time)
+author: Dr. Teri Corkery
+date: Mon Jan 17 2022 07:14:01 GMT-0500 (Eastern Standard Time)
 ---
-Sed neque reiciendis cupiditate. Consequatur aut iste numquam est tempore deleniti. Recusandae et et rerum necessitatibus consequuntur eum. Aliquam quis non et sed vel ut nemo.
+Odit ad consequatur ea unde ipsa ipsam adipisci cumque. Quia voluptatem et amet dolorem pariatur autem. Suscipit officia aperiam aut et nihil error. Excepturi veniam possimus iure. Ducimus qui quis dolores animi tenetur nesciunt eaque inventore quos. Et voluptas sint animi.
 
- Voluptatem quidem placeat quod consequatur velit nesciunt cum saepe. Voluptatem error ratione blanditiis saepe molestias unde quasi et consectetur. Nam non iste.
+ Rem et quas delectus. Alias minus dolore. Sed sit porro aperiam debitis aliquid a voluptatem nesciunt ut.
 
- Quia et itaque animi. Quis occaecati explicabo dolor. Culpa earum modi excepturi amet rerum repellat.
+ Quo amet omnis distinctio sint aliquid unde laborum eos voluptatum. Magnam sit occaecati inventore illo dolorem. Sed rerum nemo corrupti eligendi voluptas consequatur distinctio.
