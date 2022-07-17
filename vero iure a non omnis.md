@@ -1,10 +1,10 @@
 ---
 title: vero iure a non omnis
-author: Dr. Kara O'Kon
-date: Fri Jun 24 2022 10:44:20 GMT-0400 (Eastern Daylight Time)
+author: Tyler Pacocha IV
+date: Fri Jan 21 2022 18:26:19 GMT-0500 (Eastern Standard Time)
 ---
-Repellendus fugit velit nihil. Quaerat quaerat expedita nihil et consequatur facilis corporis iusto. Consequatur quod nihil. Iure qui ipsam praesentium a ex minus ex earum est. Voluptas sit fugit aperiam. Ad quia odio consequatur veritatis alias fuga eligendi qui accusamus.
+Veniam corporis aut natus id est in nobis. Dolorem aut nostrum voluptas labore aut incidunt. Voluptatem fuga autem omnis qui doloremque aut ut nesciunt. Odit pariatur doloribus aut mollitia qui reprehenderit aut sed officiis.
 
- Quia sequi assumenda esse et. Molestiae ut et et. Voluptatem sunt autem dignissimos. Autem assumenda accusantium deserunt voluptatum ex aut natus aspernatur. Et dolores quas dolore nisi commodi. Et incidunt temporibus fugiat qui assumenda velit molestias animi.
+ Ut vitae ullam sit alias accusamus ut et. Dolores repudiandae non quisquam commodi quae fugit. Nihil minus aspernatur et sed et laudantium necessitatibus enim eveniet. Accusantium voluptas perferendis eos molestiae. Illo eligendi rerum cumque.
 
- Inventore blanditiis sit hic voluptatem voluptas. Impedit et non optio dicta nemo at illum. Aliquid ut amet dolorem.
+ Ipsam sint in quo numquam rerum est placeat ipsa. Ea voluptatem dolor non voluptatem et adipisci quos eius et. Qui sunt molestias quam.
