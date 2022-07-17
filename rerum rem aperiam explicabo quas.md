@@ -1,10 +1,10 @@
 ---
 title: rerum rem aperiam explicabo quas
-author: Nina Gislason
-date: Sat Aug 28 2021 03:03:52 GMT-0400 (Eastern Daylight Time)
+author: Christopher Corkery PhD
+date: Thu Dec 09 2021 06:57:04 GMT-0500 (Eastern Standard Time)
 ---
-Non molestias sapiente velit ut vitae suscipit dolorem dolores. Fugit pariatur sed quaerat architecto. Maiores eveniet inventore dignissimos unde. Iusto cupiditate rerum voluptatem.
+Iusto dignissimos nostrum nemo exercitationem officiis. Optio dignissimos et. Placeat consequatur et omnis dolor placeat non recusandae et quasi. Dolorem quo laborum doloribus. Reprehenderit vero non et provident praesentium deserunt aliquid. Unde magni iste nesciunt corporis veniam incidunt expedita culpa.
 
- Eos voluptatem incidunt asperiores occaecati. Omnis dignissimos ut ex. Pariatur quos dolor voluptatem fugiat aut omnis accusamus error.
+ Suscipit quod sed qui repellat sed corrupti minus eligendi. Id at quasi voluptatem facilis molestiae facilis explicabo maiores sunt. Tempore eos aut ut hic rerum esse est commodi.
 
- Aut dolorem odit beatae. Mollitia cum voluptatem at. Ut doloremque ut. Quia amet nobis ab in saepe officiis autem.
+ Autem ipsa modi necessitatibus. Veniam aut quis et velit rem debitis rerum. Accusamus porro in aut est itaque veritatis nesciunt placeat saepe. Deserunt occaecati adipisci quaerat ipsa quo iure. Cum ipsum magni eos porro possimus est commodi iusto.
