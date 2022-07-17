@@ -1,10 +1,10 @@
 ---
 title: aut ut repellat quidem cupiditate
-author: Dale Gottlieb
-date: Fri Feb 25 2022 16:44:35 GMT-0500 (Eastern Standard Time)
+author: Phil Cummerata
+date: Tue Aug 24 2021 21:18:27 GMT-0400 (Eastern Daylight Time)
 ---
-Animi ipsam maxime quibusdam asperiores. Aliquam eos cupiditate quidem libero aliquam nam qui. Iusto explicabo rerum nobis qui dolorem quidem itaque. Dolorem quae totam quo similique. Praesentium rerum voluptatem. Ut ipsam repellendus aut commodi veritatis.
+Rerum nihil aspernatur sit impedit deserunt. Distinctio animi quo sint aut. Veritatis consequatur consequatur nihil libero dolor esse ut doloremque. Ut voluptates nesciunt enim repellat doloremque. Laudantium est repellat pariatur delectus dolore nobis aut nulla sunt.
 
- Nostrum qui explicabo. Et dolore minus saepe exercitationem atque repellat earum. Consectetur assumenda minus est voluptatem dicta ut. Est facilis dolorem cum dolor. Est harum excepturi sint voluptatem illum ad dignissimos.
+ Quisquam beatae sit soluta. Hic ut consequatur. Repellat rerum dicta delectus optio id. Nostrum impedit alias veritatis dolor. Excepturi sit sunt dolorem est id rerum.
 
- Fuga possimus quo. Quisquam delectus aut. Nobis maiores dolores aspernatur laudantium.
+ Iusto repellendus et id quia alias qui officia aut vero. Aspernatur ut tempora et laboriosam. Quod officia omnis rerum et pariatur.
