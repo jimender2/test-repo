@@ -1,10 +1,10 @@
 ---
 title: laudantium quam nostrum officia iusto
-author: Darryl King
-date: Sat Dec 04 2021 21:22:40 GMT-0500 (Eastern Standard Time)
+author: Shelley Bartoletti MD
+date: Fri Apr 08 2022 15:46:33 GMT-0400 (Eastern Daylight Time)
 ---
-Voluptatem et voluptas dolores accusantium neque illum inventore nihil. Corporis non officiis. Et fugiat sed fuga quam iste dolor ut. Et ut impedit laudantium ad id fugiat dolor incidunt. Ipsam nisi unde quisquam labore. Dolorem velit repudiandae.
+Est odio corporis cum dolorum qui. Eos sed maxime dolor beatae placeat et similique numquam sed. Vero magnam illum ea numquam accusamus ut esse. Repellat doloribus aliquid ab dignissimos sit omnis impedit. Quae aperiam quis.
 
- Non velit sequi totam voluptatem nam delectus itaque autem. Ea aut facilis laboriosam aut voluptates. Eius ad voluptatum rem rerum voluptatum asperiores provident.
+ Et corrupti dolores vitae. Voluptatum et quas est sequi voluptas. Totam corrupti nostrum qui.
 
- Sapiente inventore eos debitis. Doloremque sapiente alias asperiores vel ab eligendi in vitae. Soluta quae quidem. Voluptatem ipsam quaerat sit facilis. Autem ratione nam libero qui molestiae. Mollitia totam quia sapiente quam eveniet unde.
+ Quae neque velit beatae. Aperiam nihil ad qui labore aspernatur molestias ducimus voluptatem rem. Aut totam optio ut.
