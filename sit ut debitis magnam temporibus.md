@@ -1,10 +1,10 @@
 ---
 title: sit ut debitis magnam temporibus
-author: Theodore Mann
-date: Tue Aug 31 2021 05:18:44 GMT-0400 (Eastern Daylight Time)
+author: Alejandro Krajcik PhD
+date: Sat May 14 2022 08:42:57 GMT-0400 (Eastern Daylight Time)
 ---
-Magni veniam at velit. Minima perferendis at dolorem ad animi illo quia quasi veritatis. Nesciunt ab doloribus. Accusantium voluptatibus culpa non recusandae et. Impedit error debitis sequi repellat voluptate alias praesentium.
+Temporibus et rerum consequatur non voluptatem est. Velit tempore laudantium. Ea atque ullam molestias.
 
- Enim esse modi omnis architecto repellendus voluptas. Corporis officiis est. Nemo vel fugit voluptatem vel alias architecto.
+ Neque molestiae eum modi nisi recusandae autem. Et repellat voluptate deleniti perferendis esse sunt. Blanditiis sint dolor ea.
 
- Aliquid blanditiis quidem autem nihil quae. Sunt labore in illum similique sint. Non eligendi quibusdam veniam.
+ Veritatis odio deleniti. Sunt rerum laudantium aliquam officia voluptates fuga. Praesentium quasi quisquam quis qui voluptas eligendi voluptate non.
