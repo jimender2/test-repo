@@ -1,10 +1,10 @@
 ---
 title: enim ut reiciendis in incidunt
-author: Teri Marvin
-date: Mon Feb 14 2022 02:48:00 GMT-0500 (Eastern Standard Time)
+author: Sylvia Strosin MD
+date: Wed Mar 09 2022 08:05:24 GMT-0500 (Eastern Standard Time)
 ---
-Doloribus qui iure expedita culpa. Cum inventore sunt. Eos quaerat iure accusamus est commodi. Libero autem quo accusamus deserunt consequatur et qui. Maiores odio sunt rerum repellendus soluta eos similique qui quia.
+Fuga nesciunt quia enim dolor reiciendis nihil quasi voluptate. Adipisci ad exercitationem maiores id animi ducimus. Aspernatur in neque quia voluptas. Aut dignissimos at labore omnis.
 
- Enim ex quaerat incidunt pariatur. A accusamus possimus ut quod. Doloremque quia non distinctio inventore dignissimos in tenetur ratione exercitationem. Minus repudiandae possimus ut voluptatem voluptas voluptatem eos voluptatum dolorem. Aliquam eligendi qui et.
+ Ut est voluptatum provident facere. Porro sit rerum. Rerum sit provident. Culpa esse repudiandae commodi voluptas recusandae culpa voluptas esse optio. Quis eum aut harum saepe est qui eligendi tempora quo. Culpa totam aut molestiae ut beatae consequatur et.
 
- Provident id quam ut et. Earum vero mollitia quibusdam. Ipsum rerum incidunt aut fugiat. Molestias impedit est fugit nisi voluptatum. Tempora tempore in.
+ Dolorem vitae non provident dolores voluptas consequuntur. Error libero consectetur beatae iure excepturi non est ex illum. Voluptatem id nam consequatur. Accusantium ipsum rerum ipsa.
