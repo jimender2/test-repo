@@ -1,10 +1,10 @@
 ---
 title: minima ipsum amet temporibus debitis
-author: Allison Luettgen
-date: Mon Jan 24 2022 01:55:13 GMT-0500 (Eastern Standard Time)
+author: Laurie Bailey DDS
+date: Wed Jun 15 2022 01:30:00 GMT-0400 (Eastern Daylight Time)
 ---
-A recusandae nihil consequatur dolore similique ipsa impedit et omnis. Maxime mollitia libero debitis sed voluptatem quidem ad ut. Explicabo nostrum omnis reprehenderit.
+Quas qui deserunt aspernatur. Quo veniam sit. Magni maxime maiores voluptatibus quis. At est dolores harum et quia accusamus voluptatem quibusdam inventore.
 
- Ex velit accusantium. Velit quos saepe quis at accusamus inventore eum repellendus. Veritatis numquam est voluptatem unde libero. Officiis enim minima. Rerum qui dolor repudiandae.
+ Provident sunt dolore est itaque explicabo magni. Harum quia et consequatur rerum unde eum. Aspernatur ut qui vel qui quidem vel. Veniam qui sequi recusandae eos consequatur ratione. Eius dolores distinctio repellendus consequatur voluptatem dolores suscipit repudiandae.
 
- Delectus voluptatem quo ut iure omnis ipsam quis corrupti sapiente. Quod accusantium eum voluptatum id assumenda consequatur saepe in explicabo. Quod aut modi et sunt rerum a perferendis praesentium non. Mollitia officia voluptatem nisi. Nobis qui totam nobis nihil deleniti.
+ Modi omnis et eum voluptas quia. At voluptatem quis temporibus recusandae aut dolorem blanditiis quo incidunt. Voluptas laborum ea repellendus. Commodi voluptatum odit inventore. Nostrum quia enim esse. Ea voluptas eos aut ipsa inventore nobis.
