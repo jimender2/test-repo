@@ -1,10 +1,10 @@
 ---
 title: dignissimos est repellendus eveniet explicabo
-author: Merle Rempel
-date: Thu Apr 21 2022 08:50:53 GMT-0400 (Eastern Daylight Time)
+author: Pete Ortiz MD
+date: Sun May 15 2022 14:27:26 GMT-0400 (Eastern Daylight Time)
 ---
-Ipsum recusandae sed nobis excepturi repudiandae cumque reiciendis iusto impedit. Voluptates ipsa suscipit. Neque et odit est numquam deserunt a ut voluptatem facere. Eum dolores officiis voluptas minus illo necessitatibus officia aut in. Sed architecto distinctio ratione cupiditate eum voluptatem ea rerum.
+Et voluptas voluptates ipsam ad veniam suscipit ut. Libero fugit labore placeat earum aut perspiciatis suscipit nihil ipsam. Est perferendis et debitis odit autem necessitatibus dolorem. Nisi totam laboriosam corporis placeat voluptas et. Recusandae fuga totam et ipsa sit quis aspernatur adipisci est.
 
- Ut vel velit laudantium consectetur quia. Aut iusto repudiandae soluta quae molestiae. Est magni iusto eius molestiae et non nulla. Amet unde dolores dolor. Officia pariatur laudantium.
+ Aliquam vel non. Rerum consequatur quibusdam et. Et quae sunt neque nemo repudiandae tempore at.
 
- Recusandae numquam eum quasi nostrum tenetur numquam cumque molestias. Consequatur quisquam molestias ex earum et molestiae cupiditate. Aut nihil sapiente aut quo. Qui perspiciatis nam. Nam qui est non omnis et est officia eos quis. Animi et ducimus ab delectus sed cum hic iure.
+ Dolorem numquam asperiores minus quae a consequatur iusto iusto. Aperiam necessitatibus ipsum sunt facere veniam et iusto maiores reprehenderit. Voluptas et veritatis eum ipsa dolorum necessitatibus.
