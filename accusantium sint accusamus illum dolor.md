@@ -1,10 +1,10 @@
 ---
 title: accusantium sint accusamus illum dolor
-author: Darlene Rice MD
-date: Fri Jan 14 2022 08:45:58 GMT-0500 (Eastern Standard Time)
+author: Gail West
+date: Sun Nov 14 2021 04:36:38 GMT-0500 (Eastern Standard Time)
 ---
-Delectus rerum sunt commodi harum quia nesciunt corporis. Aliquam sequi facilis voluptas aliquid vero dolorem est eos. Sit dolor et quis a magni voluptates voluptas. Molestiae libero odio perspiciatis ab quisquam. Qui voluptate sapiente est repudiandae nam possimus sit beatae.
+Eos est in voluptatem cupiditate et esse placeat quod. Quisquam eligendi quam est perferendis ea. Commodi praesentium recusandae cum sit. Dolores quia dolorem exercitationem repellat quia dolorem voluptates.
 
- Dolores temporibus ducimus vero. Exercitationem et dolorum voluptas quas vel pariatur est aliquam velit. Dolores maxime ipsum soluta dolorem. Aut accusamus et in aliquid. Voluptas excepturi blanditiis et odit quaerat. Minus illo repudiandae ad nesciunt quidem.
+ Ratione esse fuga itaque maxime itaque autem quod. Vitae quaerat dicta incidunt omnis sunt similique consectetur. Aperiam ut iure minus quos id dolorem error. Facilis reiciendis quidem odio harum. Suscipit minima quam dolorem vero consequuntur qui necessitatibus odit vero. Sapiente molestias dolor cumque qui voluptate incidunt quis.
 
- Et debitis aut harum maxime dolores. Rem sint qui dolorum qui excepturi porro dolor quia. Esse et delectus sed quaerat amet enim. Quia consequatur sunt maiores voluptas omnis laborum.
+ Nemo alias dolorem accusamus. Esse numquam fugit autem maxime accusamus. Dolorum distinctio similique et.
