@@ -1,10 +1,10 @@
 ---
 title: dicta architecto aut explicabo repellendus
-author: Kristy Morissette
-date: Fri May 27 2022 22:49:12 GMT-0400 (Eastern Daylight Time)
+author: Janie Bins
+date: Tue Feb 15 2022 12:46:41 GMT-0500 (Eastern Standard Time)
 ---
-Placeat magnam maiores harum et. Consequatur neque odio impedit laborum est modi ipsa placeat commodi. Nihil vel deleniti ullam dolorem nulla.
+Sint sint amet et a temporibus id quo provident. Voluptatem qui consequuntur et doloribus deserunt. Repellat et facilis rem. Ea unde assumenda eaque rerum dolores. Doloremque rem minus et.
 
- Ducimus id itaque ut quo sed sequi quis. Nesciunt sint est cum magnam. Dolorum pariatur fugiat veritatis magni corrupti nesciunt. Asperiores odit quas veritatis.
+ Deserunt illum necessitatibus. Cumque quidem voluptatem voluptas perspiciatis ea architecto corporis. Sunt est voluptas voluptatibus.
 
- Adipisci quod similique fuga ut magni qui omnis. Facere impedit illo illum omnis. Qui doloribus architecto doloribus repudiandae possimus. Veritatis quas vero dolore ipsum quia deleniti error minima.
+ Eligendi magni velit fuga dolor dolor sunt dolore. Qui blanditiis officia aliquam mollitia consequatur id quasi. Earum dicta quam et quisquam est velit totam.
