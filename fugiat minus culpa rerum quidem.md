@@ -1,10 +1,10 @@
 ---
 title: fugiat minus culpa rerum quidem
-author: Ms. Dan Bartoletti
-date: Sun Sep 05 2021 05:34:50 GMT-0400 (Eastern Daylight Time)
+author: Michael Jast
+date: Sun Dec 19 2021 19:12:37 GMT-0500 (Eastern Standard Time)
 ---
-Et ut debitis quasi. Ut nesciunt doloremque similique vero ducimus et. Impedit laboriosam asperiores omnis reiciendis veniam est unde. Sed aut maxime illum tempore autem tempore.
+Ut aut perspiciatis quia reprehenderit doloribus et. Exercitationem accusamus nulla magni voluptas iusto aut fuga qui. Dolore sunt vitae ullam illo.
 
- Quaerat quos ducimus. Sit labore dolorum. Fugit enim exercitationem incidunt quo non corrupti qui voluptate. Sed ut quia distinctio dignissimos magni consequatur ut aut. Dicta qui sed doloribus non non sit dicta. Consequuntur nisi sapiente ut nihil voluptates incidunt.
+ Atque inventore beatae nostrum et est vel nemo. Culpa consequuntur voluptatem. Recusandae corporis dolor repellendus ab rerum autem possimus rem impedit. Totam harum natus necessitatibus nisi corporis ab qui. Dolor sit iure omnis accusamus perspiciatis expedita recusandae enim error.
 
- Illum quidem earum corporis facilis fuga. Aut nihil voluptates debitis eum ut eaque unde. Est id rem doloribus qui corporis ut id est dolor. Qui quo sit. Et optio rerum quas rem aspernatur. Ut enim animi perferendis nobis doloremque.
+ Est sint tempore magni. Reiciendis eaque qui voluptate. Repudiandae ut qui quia consectetur aut voluptatum repellendus accusantium. Natus et nihil eveniet enim.
