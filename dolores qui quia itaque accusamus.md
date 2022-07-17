@@ -1,10 +1,10 @@
 ---
 title: dolores qui quia itaque accusamus
-author: Nicholas Volkman
-date: Sun Sep 12 2021 16:02:30 GMT-0400 (Eastern Daylight Time)
+author: Phillip Torphy DDS
+date: Mon Aug 16 2021 03:19:39 GMT-0400 (Eastern Daylight Time)
 ---
-Quo veniam eveniet qui. Similique explicabo voluptatem quisquam facere ea distinctio quis. Est excepturi doloremque necessitatibus quisquam facere. Voluptas laborum alias voluptate ab voluptatem.
+Est aut architecto unde magnam est cupiditate. Qui ea pariatur vitae. Ipsum deleniti officia beatae impedit tenetur quo. Modi non deleniti quia ducimus enim at voluptas est. Dolor in sint quisquam quod ullam quis sed.
 
- Rerum adipisci ut sunt adipisci veniam. Dolorem debitis fugit voluptatem et molestiae. Soluta maiores repudiandae. Nesciunt quo voluptatum non molestias perspiciatis ut et perspiciatis eum.
+ Tenetur ab culpa nulla vel officia. Doloremque vero eos quos qui aut nihil nihil est deserunt. Deserunt qui est est.
 
- Quisquam quo quibusdam consequuntur et quis corporis blanditiis dolores molestiae. Itaque nobis voluptas. Est quis aut reprehenderit soluta illum fugit accusantium. Ex sunt blanditiis. Sunt ab voluptate ipsum beatae ea et. Consequatur dolores excepturi possimus.
+ Eligendi aut reiciendis. Autem commodi quia impedit vero optio. Eum amet perspiciatis soluta illo sit recusandae velit. Assumenda et odit necessitatibus occaecati voluptas asperiores reprehenderit officiis quia. Voluptatem necessitatibus et pariatur id. Illo rerum necessitatibus est eligendi deleniti quo.
