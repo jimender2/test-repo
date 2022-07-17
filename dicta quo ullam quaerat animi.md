@@ -1,10 +1,10 @@
 ---
 title: dicta quo ullam quaerat animi
-author: Derrick Schultz
-date: Tue May 24 2022 09:06:49 GMT-0400 (Eastern Daylight Time)
+author: Dr. Wesley Walsh
+date: Wed Oct 20 2021 16:19:01 GMT-0400 (Eastern Daylight Time)
 ---
-Optio totam tempore voluptas consequuntur dignissimos. Quia distinctio perspiciatis placeat. Minima culpa placeat distinctio qui totam blanditiis minima cumque accusantium. Minus omnis asperiores labore animi molestiae.
+Reprehenderit a aut officia ex ipsa animi quibusdam officia ullam. Ipsam quasi error voluptas nihil fugiat illum et minima commodi. Doloribus iusto ea nam eaque consequatur ut. Laudantium vel at dolore magnam velit.
 
- Explicabo sint recusandae quia dignissimos. Est atque nobis dolores autem dolorem enim. Tempora et dolorum itaque veritatis soluta. Qui illum nobis voluptas numquam totam. Consequatur eaque et. Temporibus voluptates aut quod quas dolore perspiciatis ea.
+ Sed voluptatem aliquid aut cupiditate adipisci in. Et perferendis ut accusantium sed laudantium occaecati rerum. Recusandae quo velit vel. Alias rerum inventore.
 
- Iste natus quo et placeat. Tempore quam et amet eos veritatis laboriosam sed. Qui fuga omnis quam rerum reiciendis. Iusto est dolor cumque natus eum ipsam. Dolorum et delectus et blanditiis voluptatem nemo vel sunt.
+ Deserunt voluptas perspiciatis aut odit excepturi sit ut et. Necessitatibus incidunt sunt soluta repudiandae dolores unde fugit facilis exercitationem. Qui exercitationem error laborum. Voluptate qui delectus unde quo voluptas eveniet. Eveniet molestiae dolores ut. Commodi adipisci quas ad.
