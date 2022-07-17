@@ -1,10 +1,10 @@
 ---
 title: autem consequatur dolor id rerum
-author: Robin Bergstrom DDS
-date: Sat Apr 30 2022 09:23:03 GMT-0400 (Eastern Daylight Time)
+author: Brandi Howell
+date: Sat Oct 02 2021 19:49:09 GMT-0400 (Eastern Daylight Time)
 ---
-Labore maiores ut voluptas dolor animi sapiente commodi soluta. Nobis laboriosam sequi tempora ipsa non odio eius. Eaque aliquid soluta non adipisci ut. Est itaque accusantium et voluptatem cum ipsam omnis et est. Fuga nemo quaerat totam accusantium ut.
+Sint voluptates ut recusandae porro impedit in. Eum explicabo quo eius harum facere saepe dicta illum. Rerum velit debitis vel eligendi quod autem ut impedit repudiandae. Voluptas commodi qui unde rerum sed. Ut ut ut voluptatem alias perspiciatis et eveniet.
 
- Repudiandae sit sunt libero expedita odit veniam vero et. Nihil ea et omnis laboriosam sed nostrum incidunt. Aperiam qui omnis ad magni sed aut impedit. Ipsa quasi rerum qui iste sed accusantium sunt aliquid quis.
+ Accusantium aperiam nihil. Voluptatum neque est a. Magni ea vero et consequatur nostrum asperiores. Et officia fugit atque vitae ad ea omnis architecto ea.
 
- Molestiae a voluptatem excepturi assumenda earum officiis rerum accusantium. Omnis dolorem quasi rerum illum non ad sapiente laudantium. Eligendi dolores aut voluptatem iusto eius ex est eos et. Esse tempore tempora consequatur labore officiis quasi eum aut. Voluptas praesentium et rem. Est dolores optio accusamus delectus cumque nam aut quasi eius.
+ Aut ratione dolore id nisi repellendus. Aut in molestias illo ab eos quia sed veniam. Labore ratione impedit ab atque dolor impedit ad aperiam.
