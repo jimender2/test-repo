@@ -1,10 +1,10 @@
 ---
 title: voluptate praesentium esse ut modi
-author: Mack Dickens
-date: Sun May 01 2022 02:38:39 GMT-0400 (Eastern Daylight Time)
+author: Darryl Schulist MD
+date: Sun Dec 26 2021 17:56:53 GMT-0500 (Eastern Standard Time)
 ---
-Dolorem qui non quia quae sit nulla. Nulla ipsum asperiores. Aut hic accusantium.
+Adipisci ut iste voluptate aut pariatur laboriosam provident. Et minus odit consectetur. Nulla voluptates nobis nesciunt architecto sed debitis. Quo autem vero quod enim ratione iusto et natus. Eos ut atque praesentium similique consequuntur consequatur deleniti. Voluptates a illum inventore in consectetur ipsam.
 
- Minima repellat maxime eum omnis voluptatem. Totam quasi nisi architecto repellendus sequi. Deserunt tempora pariatur quae temporibus praesentium. Sed in voluptas doloremque necessitatibus voluptate quaerat. Qui rerum adipisci.
+ Accusamus exercitationem saepe ad sit laboriosam consequatur modi aut. Sed cupiditate non vero rerum ut. Perspiciatis hic aut velit.
 
- Dolorem quisquam dolorem aperiam reiciendis nam maxime. Velit reprehenderit cum. Saepe quae eveniet atque necessitatibus sit quod optio. Libero expedita earum cum omnis reprehenderit. Ut voluptas sed omnis temporibus ut ab dolor.
+ Eveniet aut ea pariatur nam dolorum laudantium. Ut odit reprehenderit necessitatibus a corporis. Mollitia aut eligendi suscipit ad amet sed minus.
