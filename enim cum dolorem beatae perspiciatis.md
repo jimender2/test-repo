@@ -1,10 +1,10 @@
 ---
 title: enim cum dolorem beatae perspiciatis
-author: Clara Sanford
-date: Fri Aug 20 2021 06:41:34 GMT-0400 (Eastern Daylight Time)
+author: Chad Runolfsdottir MD
+date: Wed Sep 15 2021 22:09:33 GMT-0400 (Eastern Daylight Time)
 ---
-Laboriosam unde tempore ut error aut sapiente. Ut rem et sint. Incidunt maxime deleniti dolor aut.
+Hic consectetur qui distinctio aut. Et non fuga. Temporibus rerum totam doloremque quas occaecati. Dicta ab est quam quis libero consequatur ut. Qui in a tempore quod iure eius rerum recusandae et.
 
- Aliquam necessitatibus et totam ex ea enim quo ut. Maiores magnam nostrum eius aut ratione quis sed labore. Enim totam officia dolorem cum ea natus omnis. Perferendis consectetur voluptatem. Sed in itaque porro officiis eius et sit.
+ Nesciunt quia omnis blanditiis. Ducimus quia et autem assumenda. Est necessitatibus sit. Eum consequatur beatae praesentium eum quo earum.
 
- Id nulla id unde sit in beatae amet repellendus. Optio esse recusandae excepturi veritatis maiores consectetur impedit ipsam eius. Sit ut non at. Non ipsam molestiae cupiditate assumenda ipsum consectetur. Consequatur maxime quam a.
+ Facere labore exercitationem esse enim blanditiis rem dignissimos dolor ut. Modi dicta iste reiciendis. Quo exercitationem id impedit libero. Inventore consectetur quis quia voluptatem labore in vero.
