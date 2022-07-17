@@ -1,10 +1,10 @@
 ---
 title: quia veniam voluptates doloremque eum
-author: Gloria Turcotte
-date: Sat Feb 19 2022 17:38:30 GMT-0500 (Eastern Standard Time)
+author: Blake Herman DDS
+date: Sun Jul 03 2022 10:14:27 GMT-0400 (Eastern Daylight Time)
 ---
-Soluta vitae omnis quibusdam quisquam hic quo consequuntur ad. Consequatur vero voluptatum. Maxime provident qui ullam voluptatem doloribus ut. Sequi pariatur eum vel.
+Quia repellendus et cum sunt adipisci doloremque recusandae magnam dolorum. Inventore et expedita quasi consequatur aut deserunt. Eveniet magni ad quos enim voluptatem.
 
- Quo sit sapiente earum omnis voluptas ut ipsam. Harum ad itaque consectetur eos error voluptatem. Similique odio eos sequi doloribus. Minus est voluptatem aperiam sit quidem in.
+ Delectus autem molestiae rerum expedita sint. Nihil hic ut sit facilis qui nisi laboriosam maiores. Quasi aut omnis pariatur autem molestiae autem harum delectus. Temporibus rerum a dolore sequi officiis doloremque culpa assumenda occaecati.
 
- Delectus labore eligendi iure sapiente. Quo qui laborum sunt repudiandae iure dolor vero accusamus sed. Assumenda voluptatem doloribus odio. Nisi voluptatibus qui quasi laborum non sit quibusdam iste qui. Ullam temporibus repellendus nobis ut magnam debitis ut consequatur.
+ Quis dolores maxime doloribus vero et reprehenderit atque omnis. Et consequatur sit autem nobis voluptatem praesentium. Accusamus molestiae nulla voluptas soluta veniam. Eius facere enim placeat alias adipisci.
