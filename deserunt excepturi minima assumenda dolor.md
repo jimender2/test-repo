@@ -1,10 +1,10 @@
 ---
 title: deserunt excepturi minima assumenda dolor
-author: Dominic Pouros
-date: Mon Aug 23 2021 09:58:08 GMT-0400 (Eastern Daylight Time)
+author: Tiffany Franecki
+date: Thu Jun 23 2022 16:24:27 GMT-0400 (Eastern Daylight Time)
 ---
-Sunt iure laboriosam. Iste nulla sed quod non vel architecto inventore earum quis. Fugiat ut pariatur sint dolores ut provident quo vel. Saepe ducimus dolorum illum alias labore laboriosam velit doloremque adipisci. Illum ipsa ea sunt quibusdam rerum.
+Consequatur praesentium quis et et nihil similique magnam minima et. Aliquid quisquam et. Dicta in sint. Aut nihil tempore. Nesciunt veritatis eos ea vitae animi accusantium ducimus voluptatibus. Ut delectus tempora porro doloribus.
 
- Aut recusandae ut. Ab excepturi provident laborum esse dignissimos eos quia ipsum qui. Rerum asperiores laborum veritatis numquam molestias numquam dolore architecto. Et fugit est quia sit voluptatem maiores. Nesciunt quasi rem.
+ Quod rerum a aut iste voluptatem et nulla. Omnis qui officia asperiores veritatis minus optio. Doloremque nesciunt temporibus quo quia eligendi tempore.
 
- Voluptatem delectus veniam occaecati dolores aut amet nisi natus unde. Voluptatum quod nemo et sit qui facere illum est. Quis aut sapiente similique exercitationem aut delectus soluta perferendis rem. Nesciunt dolore distinctio omnis illum in nam. Culpa quis et qui dignissimos quis autem. Veritatis assumenda quia quia quisquam neque non nulla iusto.
+ Quia ut dolor et laboriosam. Aut velit ab est quis vero et optio quia. Consectetur voluptatum natus aliquam itaque ut et quia dolorem tenetur.
