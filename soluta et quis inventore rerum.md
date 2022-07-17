@@ -1,10 +1,10 @@
 ---
 title: soluta et quis inventore rerum
-author: Rick Daniel
-date: Fri Jun 24 2022 04:39:16 GMT-0400 (Eastern Daylight Time)
+author: Jaime Hartmann MD
+date: Thu Mar 31 2022 16:48:25 GMT-0400 (Eastern Daylight Time)
 ---
-Ut officia vitae temporibus libero exercitationem qui placeat animi vitae. Esse nam asperiores pariatur quaerat ut perspiciatis modi quia quam. Et molestiae laborum adipisci. Non qui quia harum eligendi eius deserunt nesciunt debitis earum. Aut ipsam nesciunt aperiam necessitatibus quaerat et consequatur dolor.
+Et alias aut laboriosam qui qui hic. Quos optio illo voluptate. Eos debitis nemo ipsam.
 
- Qui ea eveniet. Tempore est est laudantium culpa quo commodi sit assumenda. Ad beatae sit sunt illo. Officia et et minima officiis ut qui eveniet. Quam expedita ab veritatis repudiandae debitis ipsum.
+ Perferendis unde eos amet et qui. Ipsum est quia cumque quia quae ab explicabo. Officia quis quis excepturi maxime itaque dolor quis. Laboriosam vero ducimus quibusdam cum corporis a optio est eos.
 
- Voluptatem sit sit tempora. At voluptate qui in quasi saepe inventore cumque. Non reiciendis harum. Et at perspiciatis iusto quas laboriosam iste et.
+ Magni reprehenderit eligendi optio numquam. Eum voluptatibus nemo. Ea repellendus temporibus quo et mollitia similique. Neque et iusto ad sit autem voluptates possimus. Autem quas in. Atque sunt ut et fugit nisi unde rem in architecto.
