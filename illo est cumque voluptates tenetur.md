@@ -1,10 +1,10 @@
 ---
 title: illo est cumque voluptates tenetur
-author: Leslie Balistreri
-date: Fri Jul 01 2022 08:19:53 GMT-0400 (Eastern Daylight Time)
+author: Kristy Gulgowski MD
+date: Fri May 27 2022 12:13:46 GMT-0400 (Eastern Daylight Time)
 ---
-Deleniti blanditiis quas et ea nostrum esse est repellat nulla. Nobis quam et odit quia enim dolores atque molestiae aperiam. Vel animi aut. Quia nemo minima.
+Consectetur in maxime consequuntur vel quidem fugiat. Quo laboriosam sed doloribus aut commodi. Aut nemo accusantium placeat. Eum in earum nesciunt eos aut dicta dicta aliquid. Sint perferendis aut cum impedit non.
 
- Doloribus distinctio sed sed possimus aut. Molestias placeat magni cum veritatis at et. Omnis repudiandae consequatur rerum deleniti numquam. Tenetur dolores fugiat ut dolore dignissimos consequatur nam et ea.
+ Nostrum iure voluptas. Ut amet earum perferendis assumenda dignissimos maiores. Sint voluptatum quis magnam nulla quam minima. Est ipsam quo. Ut quia aut distinctio consectetur est unde.
 
- Alias qui consequatur rerum quibusdam impedit odit aperiam assumenda iusto. Dignissimos sint aut nihil. Odit excepturi tenetur quia ut doloribus optio ut officiis.
+ Quia officia consequuntur. Quasi veniam itaque quia. Consequuntur rerum velit deleniti consequuntur hic voluptatum quod.
