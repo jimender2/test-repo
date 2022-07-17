@@ -1,10 +1,10 @@
 ---
 title: incidunt omnis inventore quis eum
-author: Kristina Corkery Jr.
-date: Sat Oct 09 2021 22:30:39 GMT-0400 (Eastern Daylight Time)
+author: Christian Krajcik MD
+date: Fri Dec 10 2021 20:29:14 GMT-0500 (Eastern Standard Time)
 ---
-Blanditiis tenetur excepturi culpa esse. Cupiditate error enim repellendus temporibus aut. Ut ut occaecati dolorum blanditiis et aut. Reiciendis quis aut sint corporis velit. Quis dolorem dicta nisi qui sequi ab dolorem maiores. Qui laboriosam delectus quibusdam odio tempora.
+Esse corporis cupiditate. Soluta aut dolorum aut debitis illum repellendus nihil officia. Voluptatibus aut illo et totam quos sit qui voluptatibus. Molestiae culpa est occaecati et maxime quo modi.
 
- Enim omnis et dolor dolores necessitatibus voluptas cupiditate omnis labore. Necessitatibus molestias molestiae. Quo nihil ipsa accusamus id totam voluptatem ducimus qui ex.
+ Consequatur similique dolor nesciunt et sapiente accusamus. Aut et consequatur enim veritatis similique fugit nulla et illo. Ea blanditiis alias qui voluptates et vitae. Sit corporis inventore quibusdam. Explicabo id ut. Praesentium et vel ipsa.
 
- Quo magnam velit sint est eos porro. Enim quod delectus aliquid velit ducimus. Facilis sit omnis distinctio nemo vero quo rerum. Quia est repudiandae. Quibusdam et aut consequatur natus at aut maiores tempora.
+ Dolores voluptates consequatur non inventore et voluptates inventore molestiae consequatur. Id eum temporibus sit maiores tempore ipsum odio et. Non quidem dolor possimus quos animi ipsa. Adipisci dolore vel quibusdam accusantium eligendi adipisci voluptas vel.
