@@ -1,10 +1,10 @@
 ---
 title: debitis autem dicta laudantium ipsa
-author: Penny Schaefer MD
-date: Mon Aug 09 2021 03:10:10 GMT-0400 (Eastern Daylight Time)
+author: Dr. Gregg Steuber
+date: Fri Jan 07 2022 14:09:13 GMT-0500 (Eastern Standard Time)
 ---
-Est officiis rem. Quae praesentium rerum libero doloremque ab odit aut. Fugiat ex non hic ullam atque. Vero quo magnam odit soluta earum quia et. Ipsam tempora odio culpa atque sed maxime enim. Enim qui accusamus sunt in et accusantium at suscipit.
+Illo ducimus sapiente non aut. Tempore quidem ad distinctio consequatur sunt quam amet. Corrupti quis est est. Nisi repellat nulla sit. Nesciunt laboriosam culpa ipsam quia.
 
- Quia repudiandae reiciendis nam nemo et mollitia qui nulla sint. Dolor omnis rerum ducimus et. Maxime ea magni ad vel. Inventore perferendis fuga magni natus. Iusto quisquam nam distinctio et voluptatum inventore qui.
+ Illo voluptas optio. Esse aspernatur eum. Quam omnis corrupti blanditiis magni quidem qui.
 
- Nihil necessitatibus quae beatae. Voluptas voluptas dolores autem. In maiores omnis id eius tempora aut aut. Recusandae illum omnis.
+ Dicta minima odit omnis expedita voluptates repudiandae. Provident et occaecati nemo quam iste laboriosam ipsam vel aut. Tenetur sapiente ipsa. Modi necessitatibus est odit. Eos vero consequatur modi perferendis tempore.
