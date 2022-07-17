@@ -1,10 +1,10 @@
 ---
 title: et dolorem aut blanditiis expedita
-author: Camille Rau
-date: Sun Oct 17 2021 05:45:39 GMT-0400 (Eastern Daylight Time)
+author: Valerie Welch MD
+date: Thu Jan 06 2022 02:41:28 GMT-0500 (Eastern Standard Time)
 ---
-Architecto praesentium sapiente laborum animi quas ea est odit. Soluta sit ab id velit laudantium. Est voluptas dolores eaque quia nobis rerum cupiditate. Explicabo mollitia deleniti laborum.
+Tenetur quisquam est numquam repudiandae adipisci blanditiis expedita. Et vero consequatur sequi. Voluptatem consequatur assumenda expedita et asperiores. Est ut molestiae.
 
- Qui corporis quia qui occaecati. Eum voluptatem ut doloribus possimus. Velit et maiores magni illo dolore distinctio eos asperiores. Enim quaerat non facere quis odit atque repellat. Ipsa nemo autem deleniti voluptatibus rerum inventore. Omnis qui ea consequatur architecto non consequatur alias.
+ Qui iure quidem asperiores corrupti nemo. Maxime ipsam amet incidunt. Natus praesentium quia inventore distinctio.
 
- Est omnis sunt temporibus repellendus. Porro nisi pariatur tempora ex odio. Ab asperiores quia eligendi. Qui excepturi dignissimos et maxime nihil et quasi vel.
+ Odio ducimus voluptas doloribus qui quia sunt sunt quidem sit. Quaerat nulla et. Fugit corrupti fuga totam ut natus enim omnis qui. Voluptatum tempore qui dolorem laudantium iure nesciunt.
