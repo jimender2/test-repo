@@ -1,10 +1,10 @@
 ---
 title: inventore accusamus corrupti enim voluptates
-author: Ms. Rick Nader
-date: Sun Mar 27 2022 15:21:40 GMT-0400 (Eastern Daylight Time)
+author: Ronald DuBuque
+date: Sun Dec 19 2021 14:24:22 GMT-0500 (Eastern Standard Time)
 ---
-Autem vitae dicta dolorem consequatur commodi ut. Magni ratione tenetur. Fugiat nemo alias voluptatibus omnis labore doloremque et quo iste. Voluptatem deserunt iure omnis at quam. Velit ab est culpa. Earum cumque illo rerum consequatur voluptatem qui harum autem ipsa.
+Id fuga consequuntur id dolores nam. Nulla quis inventore eveniet ullam. Neque ratione deleniti voluptatem tempora dolorem dolorem. Enim minus soluta qui similique quod perferendis repellat iure. Et eos eligendi laborum culpa earum soluta et et.
 
- Eum sit voluptatibus sequi iusto id architecto. Autem repellat mollitia in molestias itaque illo. Est et magni aspernatur quia dolorem tenetur labore.
+ Nulla autem id animi enim delectus rerum. Sit ab deserunt quo enim numquam minus. Adipisci nemo ut voluptatem odio facere dicta error. Aspernatur assumenda reprehenderit aliquam quas quia vitae.
 
- Dolorum deserunt sint architecto. Voluptate qui est laborum iste accusantium cupiditate. Dolores distinctio et animi voluptatem.
+ A temporibus aut ea natus est ea repudiandae. Earum autem nemo quod. Consequatur eius dolorem voluptatem. Nostrum natus voluptatem ex aspernatur ut qui ad.
