@@ -1,10 +1,10 @@
 ---
 title: numquam et pariatur debitis minima
-author: Yolanda Beatty
-date: Mon Nov 01 2021 09:35:16 GMT-0400 (Eastern Daylight Time)
+author: Shawna Ebert DDS
+date: Wed Jun 29 2022 22:05:32 GMT-0400 (Eastern Daylight Time)
 ---
-Incidunt in quisquam eos. Inventore est quos provident consequatur et et explicabo dolor. Doloribus consequatur qui. Delectus et nemo facilis reiciendis aut.
+Non aspernatur sed sit aliquam qui odit est non. Est maiores minima iste. Quas facere autem aperiam doloremque. Veritatis aspernatur et nisi recusandae fuga molestiae molestiae beatae dolorum. Mollitia aut nisi fuga voluptates cum qui facere. Ullam magni est.
 
- Aspernatur totam ad reprehenderit corrupti voluptatem fugit. Voluptates minus ipsa dicta minus ipsum. Corporis rerum voluptatem alias aspernatur enim. Voluptatibus sit quia ipsa veniam. Porro nisi commodi totam.
+ Ut temporibus sed ipsa ipsum inventore deleniti a vero autem. Vel repudiandae totam ex in voluptate quibusdam sunt. Et voluptates exercitationem harum velit et eveniet facilis voluptatibus. Quia adipisci magnam ad qui quo rerum quis qui id. Qui tempore harum nemo id et omnis.
 
- Pariatur qui voluptatum tenetur sapiente voluptatem voluptas. Dolores suscipit expedita neque error. Ex repellendus consequatur voluptatem ea et. Ipsum corrupti dolores quia perspiciatis qui explicabo blanditiis sint. Repellendus est neque nostrum.
+ Praesentium in est odio qui sunt vel omnis. Enim tenetur ipsa fuga ut illum dolorum. Beatae neque eaque reprehenderit hic adipisci sapiente. Adipisci optio inventore dolore officia reiciendis temporibus nisi quam maxime.
