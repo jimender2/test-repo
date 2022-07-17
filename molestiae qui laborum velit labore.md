@@ -1,10 +1,10 @@
 ---
 title: molestiae qui laborum velit labore
-author: Guy McLaughlin DDS
-date: Sat Dec 25 2021 23:30:41 GMT-0500 (Eastern Standard Time)
+author: Lindsay Kunde
+date: Mon Jan 24 2022 23:00:36 GMT-0500 (Eastern Standard Time)
 ---
-Et ut repellat sint facere perspiciatis. Est assumenda voluptatem. Alias a aut voluptate beatae aspernatur error. Quia et velit quasi. Occaecati amet deleniti debitis explicabo. Illo aut doloremque.
+Qui error ut facere officiis. Accusamus aut rerum. Inventore esse quo quia qui voluptatem.
 
- Dolore et vero praesentium ab. Neque et et. Qui sit odit possimus numquam ratione voluptatem illum asperiores. Natus ad tempore.
+ Autem omnis laudantium alias doloremque sequi soluta et est est. Impedit cupiditate ut. Quos quas molestias. Quo inventore suscipit aut.
 
- Quis dicta et nihil. Ut in rerum blanditiis tenetur similique itaque molestiae dolor. Eum ipsum ut.
+ Occaecati dolorem omnis mollitia sint. Omnis excepturi quaerat rerum eos inventore unde illo. Alias quis illum. Provident nostrum quia placeat tempora quia.
