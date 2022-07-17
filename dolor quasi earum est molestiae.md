@@ -1,10 +1,10 @@
 ---
 title: dolor quasi earum est molestiae
-author: Jeremiah Dooley
-date: Sat Sep 11 2021 08:34:05 GMT-0400 (Eastern Daylight Time)
+author: Lori Turcotte MD
+date: Fri Sep 24 2021 05:04:53 GMT-0400 (Eastern Daylight Time)
 ---
-Laboriosam odio et accusantium unde ut est. Est sed nulla eveniet. Non non incidunt. Tempora eveniet atque ipsam animi voluptatem voluptate corporis earum.
+Tempore dolorem fugit. Labore ullam in. Non cupiditate eveniet velit dolorem. Non neque mollitia vel vero voluptas tenetur. Aut inventore temporibus voluptatum.
 
- Est itaque unde nostrum. Eius est voluptatibus neque alias consectetur. Corrupti dolor nam fugit neque molestiae atque et aut excepturi. Dolorum rerum soluta. Quaerat aut voluptas voluptatem maxime et a doloremque excepturi hic. Error et amet nisi similique aut dolorem quaerat incidunt nihil.
+ Eum et quam est nostrum libero voluptate occaecati. Veritatis deleniti voluptatum earum asperiores expedita. Aliquid corrupti nisi provident. Sunt sed est modi qui deleniti.
 
- Veniam doloremque ut debitis recusandae voluptatem voluptas expedita. Aut maiores possimus. Quaerat fuga et necessitatibus sit officia. Cumque sapiente voluptas ad facilis qui nemo. Facere consequuntur repellendus aut suscipit. Ad sunt velit eum iusto.
+ Nostrum ut recusandae et sit tempore voluptatem et. Vitae temporibus dolore alias. Odio sequi accusamus aspernatur cupiditate sunt non et velit. Quae voluptatibus ea vel est. Deserunt animi vero. Et officia repellendus.
