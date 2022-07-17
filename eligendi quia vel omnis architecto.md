@@ -1,10 +1,10 @@
 ---
 title: eligendi quia vel omnis architecto
-author: Terrell Effertz
-date: Sun Dec 12 2021 19:37:36 GMT-0500 (Eastern Standard Time)
+author: Sabrina Krajcik I
+date: Sun Oct 17 2021 04:11:49 GMT-0400 (Eastern Daylight Time)
 ---
-Reiciendis consequatur consectetur. Nihil neque possimus facilis in pariatur repellendus minima et nostrum. Doloremque cum porro ut repudiandae accusantium.
+Dolorum quod necessitatibus nemo velit nobis. Cum et repellat sunt qui. Numquam laborum adipisci est doloremque eius quisquam.
 
- Totam consequatur iusto iusto qui et magni. Sit harum delectus explicabo nobis sit corrupti quo facilis. Delectus alias iusto esse maxime magnam sint. Est placeat aut quia vel vitae. Rem necessitatibus corporis eos qui tempore quia asperiores itaque. Molestiae possimus occaecati quia soluta rem minus deserunt qui.
+ Vitae saepe accusamus ea consequuntur omnis voluptatum rerum officiis. Natus placeat doloremque quia sapiente eos ea cum neque praesentium. Saepe ea accusamus iure optio et ut. Neque provident ut dolorem deserunt occaecati reprehenderit.
 
- Maiores ut repellat unde laboriosam non cupiditate. Eum facilis deserunt earum perferendis quia. Repellendus et nihil. Et rerum reiciendis hic ipsa nobis. Rerum quasi eius modi accusamus. Rerum rerum accusamus nesciunt error suscipit.
+ Itaque reprehenderit beatae nam animi aperiam. Eos cupiditate inventore unde velit ea praesentium. Aspernatur voluptatem delectus aliquid eligendi fugit dolorem pariatur at.
