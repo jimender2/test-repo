@@ -1,10 +1,10 @@
 ---
 title: sit rerum et fugit dolorum
-author: Katherine Feil PhD
-date: Sun Feb 13 2022 08:33:10 GMT-0500 (Eastern Standard Time)
+author: Roderick Quigley
+date: Sat Dec 11 2021 19:40:01 GMT-0500 (Eastern Standard Time)
 ---
-Voluptates aliquid dolor soluta non. Cupiditate sequi repellendus consequatur possimus reprehenderit voluptate sed explicabo blanditiis. Non iusto deserunt alias enim iusto molestias. Delectus quia eaque odio rerum iusto assumenda distinctio assumenda. Tempore neque ipsum atque.
+Consequatur quis pariatur recusandae adipisci praesentium molestias et rem animi. Autem esse consequatur. Consectetur provident sunt. Doloribus dolore consequatur cum sunt omnis rem iure. Vel qui doloribus architecto totam dignissimos tenetur.
 
- Qui nemo laboriosam voluptatibus rerum temporibus. Et aliquid officia ullam sit dolorem in velit maiores. Enim deserunt sed natus. Recusandae sit eligendi suscipit accusantium ipsam consequatur voluptatem minus.
+ Mollitia assumenda molestias explicabo. Eos expedita quas perferendis sapiente eaque aliquam. Adipisci sed modi. Nemo explicabo molestiae explicabo animi saepe. Amet ipsa rem.
 
- Ullam iste rerum voluptatibus odit libero non quibusdam. Qui nihil quia facere quae. Asperiores nostrum architecto impedit consequatur.
+ Possimus beatae deleniti. Fugiat dignissimos neque velit et nemo quia eligendi maxime. Mollitia alias ex voluptatem error delectus quis repellendus. Dolor magni perferendis suscipit.
