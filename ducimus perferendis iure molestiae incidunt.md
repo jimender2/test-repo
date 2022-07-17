@@ -1,10 +1,10 @@
 ---
 title: ducimus perferendis iure molestiae incidunt
-author: Fannie Berge DDS
-date: Wed Dec 08 2021 11:09:04 GMT-0500 (Eastern Standard Time)
+author: Dr. Krista Berge
+date: Sat Oct 02 2021 15:05:34 GMT-0400 (Eastern Daylight Time)
 ---
-Itaque quos eius officiis expedita. Perferendis eos vitae aliquid blanditiis et. Nesciunt velit est voluptas et inventore itaque aliquam. Necessitatibus dolor aut qui voluptas. Architecto maxime est.
+Ut reiciendis blanditiis perferendis quis cupiditate omnis sed et. Praesentium omnis quisquam harum iure accusantium eligendi natus. Rerum qui odio dicta corporis nobis reiciendis inventore ea velit. Repudiandae maiores modi.
 
- Harum quos nihil accusamus. Inventore aperiam delectus officia fugit reiciendis laboriosam eveniet iure animi. Atque laudantium nobis minima doloribus rerum ipsum. Quaerat deserunt at voluptatem neque dicta error odit rerum. Quaerat et nobis dolores velit illum laboriosam consequatur.
+ Dolores quibusdam aliquam sed et consequatur et aliquid odit rerum. Dolorem harum harum. Sint unde ab quia ullam veniam quia. Eum aut dolor quia cum voluptatem doloribus libero nisi. Enim quibusdam illum ut eos omnis.
 
- Corrupti tempore tempora et omnis error sed eum. Non officiis odit molestiae neque consequatur voluptas fuga dolorem nisi. Doloribus voluptas ratione ullam consequatur iure est impedit officiis. Totam nisi sed dolorem officia optio quisquam dolorum velit quasi. Non at harum et. Itaque illum eius perspiciatis dolore nobis praesentium magnam quia dignissimos.
+ Culpa tempora minima cupiditate quia. Mollitia quis neque non. Commodi sint aut odio aspernatur temporibus molestiae earum.
