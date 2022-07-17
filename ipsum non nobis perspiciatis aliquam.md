@@ -1,10 +1,10 @@
 ---
 title: ipsum non nobis perspiciatis aliquam
-author: Joseph Barrows
-date: Wed May 18 2022 02:52:03 GMT-0400 (Eastern Daylight Time)
+author: Gene Breitenberg MD
+date: Fri Dec 03 2021 17:15:35 GMT-0500 (Eastern Standard Time)
 ---
-Sint quod magnam eos molestiae et qui vitae. Quaerat quis et voluptatum commodi. Saepe velit corporis. Unde qui dolorem mollitia. Voluptatem officiis voluptas tempore expedita illo ut atque dolor.
+Voluptates voluptas dolorem ut inventore repellendus consectetur ratione veniam dolor. Praesentium hic earum voluptatem et dolore ipsa. Sapiente qui sed consequuntur.
 
- Tempora exercitationem omnis omnis quibusdam totam corrupti corporis veniam unde. Dolor dignissimos possimus et saepe nam voluptas dolorem nisi ea. Maxime fugit consequatur quidem esse.
+ Qui dolorem qui rerum dignissimos laboriosam libero iure. Consequatur distinctio vitae delectus. Delectus maiores voluptatem expedita dolorem excepturi. Quod officia repellendus dignissimos sit officia.
 
- Ut quia sapiente. Ipsa autem sint. Dolor nostrum et molestiae non explicabo vitae.
+ Sed distinctio libero quam a voluptates qui exercitationem est ex. Qui rerum possimus nulla iure. Hic eveniet eum veritatis sapiente corrupti sint. Aspernatur magni inventore perferendis iste sed veritatis. Magnam tempora voluptatem illum vel quia vel pariatur sequi.
