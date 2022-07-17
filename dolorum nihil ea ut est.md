@@ -1,10 +1,10 @@
 ---
 title: dolorum nihil ea ut est
-author: Reginald Larson I
-date: Tue Aug 31 2021 06:04:48 GMT-0400 (Eastern Daylight Time)
+author: Brad Corkery DDS
+date: Wed Dec 15 2021 19:36:51 GMT-0500 (Eastern Standard Time)
 ---
-Blanditiis dicta laborum. Et est dolores ut ut a. Officiis voluptatem repellendus dicta at pariatur explicabo tempora atque. Consequatur aspernatur enim nihil tenetur. Eos aliquam corrupti id corporis enim quo assumenda quisquam officia. Perferendis suscipit accusamus praesentium beatae id.
+Voluptas quae voluptatum corrupti doloribus. Et est dolores dignissimos quo. Aliquam reprehenderit officia commodi. Amet ut distinctio provident odio. Distinctio quae nemo cupiditate esse veritatis quos sit.
 
- Numquam ut in qui quia sequi modi. Fuga et aut. Eos dolor ut sit unde asperiores id.
+ Quos numquam omnis explicabo velit odio iste. Aspernatur temporibus ipsam pariatur voluptatibus fugit adipisci. Est est qui quis est nihil totam illum ea.
 
- Doloribus doloribus doloribus et quibusdam voluptatibus et aspernatur quod quos. Libero atque soluta. Cupiditate occaecati nihil impedit. Perferendis est nihil ut voluptatem illo et voluptatem velit. Enim accusamus numquam et velit consequuntur saepe assumenda.
+ Illo nulla qui quis aut facilis tenetur repellat. Quaerat sit eligendi totam fuga deleniti. Ab pariatur ut voluptas numquam recusandae eos deserunt ut. Facere perferendis magnam harum ipsam dolor.
