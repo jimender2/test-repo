@@ -1,10 +1,10 @@
 ---
 title: atque blanditiis vel illum pariatur
-author: Lorraine Corkery
-date: Fri Feb 18 2022 16:30:04 GMT-0500 (Eastern Standard Time)
+author: Dennis Cruickshank
+date: Sat Jan 08 2022 20:55:21 GMT-0500 (Eastern Standard Time)
 ---
-Eos pariatur consectetur et qui. Cupiditate expedita et a exercitationem deserunt corrupti possimus. Sit officia dignissimos laudantium officiis rerum explicabo temporibus eius veniam. Explicabo voluptatum vero iste.
+Et qui animi amet ut. Possimus officia laudantium eum amet. Sed dignissimos rerum ea harum qui perferendis. Voluptatem deleniti porro iure eveniet assumenda aut praesentium ullam. Delectus doloribus perspiciatis non eaque.
 
- Eum aliquam occaecati amet aliquam et. Iste fugit expedita error et id voluptatem unde doloremque quidem. Enim dolorem perferendis.
+ Itaque soluta error et nisi quas adipisci quasi necessitatibus alias. Modi enim similique corrupti similique nihil. Commodi in reprehenderit eos sunt eos aspernatur sit. Dolores nemo unde velit aut omnis enim dicta numquam ipsam. Eius alias sed sed sit libero placeat rerum corporis.
 
- Ab nisi quo nemo recusandae et. Itaque maxime vitae harum autem. Qui deleniti quia aut. Sit et ut voluptates ut. Natus dolorem similique. Iste ut neque dignissimos in alias explicabo sequi praesentium.
+ Vitae dolorem consequatur enim maiores. Illum odio dolorem saepe vel labore consectetur minima suscipit hic. Vel culpa vitae et dolorem possimus aut nihil nulla non. Esse sit quia neque eius dignissimos officia. Architecto quisquam consequatur omnis est nemo voluptas consequatur animi.
