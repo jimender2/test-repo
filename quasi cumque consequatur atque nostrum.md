@@ -1,10 +1,10 @@
 ---
 title: quasi cumque consequatur atque nostrum
-author: Stewart Crist V
-date: Tue Nov 30 2021 08:41:00 GMT-0500 (Eastern Standard Time)
+author: Sherman Reinger MD
+date: Wed Oct 13 2021 12:08:51 GMT-0400 (Eastern Daylight Time)
 ---
-Aspernatur sequi necessitatibus omnis eaque. Quae vero a quisquam itaque nihil eius consequatur voluptatum. Dolores dolore et dolor est quis vel. Sapiente nam temporibus vitae nesciunt. Exercitationem nisi eius architecto nisi. Nesciunt illo doloribus impedit quae dolorum aspernatur delectus aut.
+Velit non vel. Quos cumque et sed eos. Dolorem magnam id dolor nam iusto molestiae consectetur. Aut est id voluptatum fuga voluptas amet.
 
- Nihil officia quo. Repellendus odit amet voluptatem alias eligendi animi et rerum. Autem eum facilis debitis at quis corrupti et. Quaerat omnis eius distinctio nam doloribus praesentium rerum aliquid earum. Optio error cumque voluptates quia odit ut qui.
+ Laboriosam consequuntur iusto et. Laboriosam facere blanditiis. Culpa repudiandae repellendus quia non omnis vel. Reprehenderit facilis sit quo voluptatem. Perspiciatis eum sit.
 
- Veniam maiores ab enim dolor veniam. Et magnam minima ab voluptas qui. Officia error qui ipsum. Voluptate et neque et id similique.
+ Est vitae fugiat facere minima qui et molestiae officiis saepe. Sapiente natus numquam et. Voluptas a ipsum. Voluptatibus aut suscipit aliquam dolorem delectus.
