@@ -1,10 +1,10 @@
 ---
 title: iste voluptatem pariatur temporibus et
-author: Darrel Bauch
-date: Wed Jan 19 2022 03:07:33 GMT-0500 (Eastern Standard Time)
+author: Drew Cronin PhD
+date: Mon Mar 28 2022 23:26:21 GMT-0400 (Eastern Daylight Time)
 ---
-Temporibus dolorem natus in. Tenetur iste adipisci laborum praesentium alias omnis dolor. Laudantium consequatur tenetur quia quia. Repellendus harum quo quia voluptatem blanditiis molestiae accusantium officiis dolores. Qui ducimus odio non voluptatem pariatur ut ea. Et ipsa quos accusantium.
+Aperiam sed commodi repellendus. Pariatur quia labore quia voluptatibus est aut aut sit. Consequuntur voluptas neque ex natus modi occaecati. Eos repudiandae suscipit nihil. Optio nemo aut eaque. Voluptas culpa tempore omnis cumque corrupti et.
 
- Minus optio laudantium et a unde error in a. Quod aut perferendis dolores laborum commodi quam. Ipsam et sed nemo qui. Tempora voluptas aperiam in. Eos non mollitia ex sint inventore.
+ Eum expedita eaque occaecati et veritatis facilis. Placeat incidunt autem quas. Modi sint qui commodi et repudiandae. Qui doloremque id recusandae odit nihil aperiam exercitationem ab. Et ullam consectetur in similique nam repellendus saepe.
 
- Quia libero molestiae dolorem alias accusamus sed eveniet iure voluptates. Alias fuga sed non vero nihil rem. Expedita molestiae et sit minus.
+ Excepturi quibusdam voluptate. Nisi accusamus itaque saepe. Ea aut dicta. Odit voluptatibus rerum. Sapiente molestias repellendus et doloremque voluptates sit vel.
