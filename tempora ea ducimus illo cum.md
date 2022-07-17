@@ -1,10 +1,10 @@
 ---
 title: tempora ea ducimus illo cum
-author: Cathy Kling
-date: Sat Feb 26 2022 08:46:55 GMT-0500 (Eastern Standard Time)
+author: Pat Christiansen DDS
+date: Sun Apr 03 2022 09:19:41 GMT-0400 (Eastern Daylight Time)
 ---
-Est voluptatem voluptatum architecto saepe. Et exercitationem voluptates harum mollitia debitis sed. Pariatur autem doloremque incidunt commodi doloremque modi illo enim. Sunt atque iure. Quia et cum reiciendis. Nesciunt esse nam officia sequi mollitia dolorem.
+Commodi quibusdam et non. Et similique quia quo illo iure magnam eos consectetur. Molestiae consectetur commodi modi ut sed quo adipisci. Omnis aliquam quia ut placeat est et neque.
 
- Qui a voluptas ab distinctio voluptatibus provident voluptatem. Autem pariatur quia vitae eaque. Ipsum consectetur dolor ut qui similique minima. Consequatur possimus at est natus blanditiis reiciendis.
+ Accusantium ab quia porro assumenda perspiciatis dolor. Tenetur dolor qui rerum similique sapiente cumque voluptas saepe. Et accusamus dolores illum.
 
- Explicabo fugit consequatur nihil incidunt officiis sapiente excepturi consequatur. Laborum dolor distinctio. Sequi illum vel quam commodi veniam. Ipsam corrupti inventore quibusdam quia sed. Est aut error hic iure.
+ Accusantium laboriosam consectetur praesentium veritatis tempore quod expedita delectus dolores. Aut nesciunt magni iure voluptates veritatis dolorem ut quis. Rerum suscipit numquam aut. Praesentium voluptatibus aut fuga ut. Neque quasi ab recusandae.
