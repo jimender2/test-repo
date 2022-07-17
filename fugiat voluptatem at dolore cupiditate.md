@@ -1,10 +1,10 @@
 ---
 title: fugiat voluptatem at dolore cupiditate
-author: Ronald Roob
-date: Sat Dec 18 2021 11:14:30 GMT-0500 (Eastern Standard Time)
+author: Roy Mosciski PhD
+date: Tue Mar 22 2022 21:38:50 GMT-0400 (Eastern Daylight Time)
 ---
-Nihil vero sint totam temporibus non distinctio non odit. Qui ipsa omnis voluptatem. In dignissimos repellat voluptatem occaecati laudantium qui enim. Similique omnis nihil est. Quae quia similique autem id vitae dolorem. Magnam qui et exercitationem consequatur repellendus doloremque.
+Quam voluptatem sed labore rem. Quaerat sed soluta illo nam. Tempora voluptatem adipisci. Quia voluptatem assumenda perferendis necessitatibus exercitationem fuga et et. Iste id praesentium non dolorem aut eaque.
 
- Illum labore consequatur numquam aliquid nam. Assumenda voluptas fuga id quasi impedit reprehenderit expedita. Debitis unde adipisci ducimus libero consequatur quis ipsam cum. Beatae dolorem illum.
+ Et quia corrupti aspernatur aspernatur possimus hic voluptatibus quo. Vel ea nam nisi ratione quaerat sed. Magni fuga et omnis totam amet et minus mollitia facere. Ab natus ipsam. Id velit aut rerum voluptatem delectus.
 
- Ut et qui dolorum. Suscipit optio totam officiis. Et consequatur magni nesciunt quia. Maxime nostrum et molestias laudantium eaque. Impedit quasi praesentium sunt ut velit.
+ Enim est molestiae aut. Vitae sequi expedita voluptatem. Nemo sequi ipsa sunt incidunt.
