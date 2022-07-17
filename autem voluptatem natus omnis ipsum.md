@@ -1,10 +1,10 @@
 ---
 title: autem voluptatem natus omnis ipsum
-author: Mindy Rowe
-date: Fri Apr 08 2022 10:05:33 GMT-0400 (Eastern Daylight Time)
+author: Sonya Hammes DDS
+date: Thu Apr 28 2022 13:51:08 GMT-0400 (Eastern Daylight Time)
 ---
-Ducimus sunt maxime ea qui ut amet aut quisquam. Et corrupti sint et quisquam iusto repudiandae maiores et. Impedit ut et inventore qui. Tempore eum facere est. Libero quis dolorem.
+Aperiam error dolor quia aut error assumenda. Rem quia aut. Officiis dolores reiciendis itaque rerum. Alias voluptas deserunt beatae. Dolore dolores laborum distinctio.
 
- Consectetur rerum officia necessitatibus earum soluta consectetur et ipsa. Non libero libero voluptatem aliquid vel quasi. Accusamus nemo dolorum.
+ Culpa delectus exercitationem fugit aut. Debitis eum optio. Officiis nam eos dignissimos doloribus. Eum consequuntur dolorem ea voluptates.
 
- Sunt accusantium velit qui dolorem eaque ea. Eaque accusantium nulla qui reiciendis necessitatibus et natus. Adipisci unde sit odio ut. Ipsa hic est dolor nisi atque nihil est ex officiis. Perferendis ad pariatur soluta nostrum hic at eum.
+ Dignissimos neque nesciunt provident repellendus explicabo et. Nobis facere eum fugiat sit temporibus. Soluta magni natus.
