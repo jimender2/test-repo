@@ -1,10 +1,10 @@
 ---
 title: omnis tempora architecto non tempore
-author: Wilson Armstrong
-date: Sat Mar 26 2022 21:42:04 GMT-0400 (Eastern Daylight Time)
+author: Jo Hauck
+date: Sun Dec 12 2021 00:03:59 GMT-0500 (Eastern Standard Time)
 ---
-Aut fugit distinctio omnis veniam vel reprehenderit laborum. Culpa dolores rerum dicta veniam. Modi et qui incidunt voluptas maxime quidem sint eligendi. Neque repudiandae tempora nostrum et voluptate. Molestiae quia iure dolorum facilis consequatur voluptatum nesciunt enim. Delectus repudiandae veritatis quisquam voluptate explicabo eveniet qui.
+Ipsum sit in quae sit ad aliquam vel. Rerum sunt qui autem itaque dolores minus. At quo quo consequatur sed quo dolorem. Et quis harum dicta necessitatibus est rerum voluptates ut et. Facilis eaque quo.
 
- Illum consequatur sapiente doloribus reiciendis. Voluptatem sed facere fuga nulla deleniti. Unde amet sed deleniti consequatur qui eos vitae. Sapiente nesciunt veritatis. Quod architecto quis. Earum eum aut hic similique dolor eaque explicabo velit.
+ Cum et veniam optio ullam beatae doloribus occaecati velit corrupti. Fuga et aliquid ut ex qui rerum sit aut quod. Possimus occaecati similique maxime iure aliquid maiores enim tempore.
 
- Ut corporis voluptas eligendi qui vel. Ut ipsa excepturi et dolorum maiores nesciunt iusto beatae. Soluta sit dolorem illum natus dignissimos placeat vel aut animi. Aut quo vel error aut possimus deleniti culpa voluptas ut.
+ Minus aut qui aliquid distinctio amet. Et minus et. Aut expedita rem est explicabo.
