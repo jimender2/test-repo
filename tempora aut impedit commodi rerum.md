@@ -1,10 +1,10 @@
 ---
 title: tempora aut impedit commodi rerum
-author: Oscar Welch
-date: Sat Nov 20 2021 19:20:35 GMT-0500 (Eastern Standard Time)
+author: Sherry Witting
+date: Sat Jul 24 2021 21:40:46 GMT-0400 (Eastern Daylight Time)
 ---
-Laborum qui error rerum voluptatem nam. Architecto modi quis. Praesentium totam qui ut cupiditate. Laborum voluptatem fugiat qui aliquid odio veniam quod. Quae eos consequatur officia tempora est sapiente fuga aut expedita.
+Soluta fugit labore id. Repellat provident et ea voluptatem sit. Voluptas expedita eius est voluptates veritatis perferendis ipsum. Minus reiciendis debitis natus architecto. Cupiditate doloribus fugit rerum assumenda doloremque autem excepturi nihil at.
 
- Consequatur suscipit voluptates rem totam vero delectus aut qui. Ad officia eius ut provident nam. Minima ut perspiciatis commodi voluptatum.
+ Quis minima minus sit quibusdam natus. Reiciendis expedita illo. Quaerat dolores pariatur aut eligendi quos rerum suscipit.
 
- Quisquam velit non sunt et. Magni temporibus atque id necessitatibus quidem dolorum aut. Sint ex nisi autem est reiciendis in. Corrupti tempora non officia quo.
+ Velit odio rem quo ipsam sunt eveniet eos. Tenetur et quo explicabo doloremque et itaque minus eum cupiditate. Autem atque nisi consequuntur facere. Sit iusto mollitia reiciendis cumque similique iure omnis alias aut. Aliquid quisquam repellendus praesentium vero aut. Velit veritatis omnis et sit.
