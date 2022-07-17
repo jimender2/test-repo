@@ -1,10 +1,10 @@
 ---
 title: occaecati architecto libero quae voluptatem
-author: Danny Jerde
-date: Tue Oct 05 2021 23:36:55 GMT-0400 (Eastern Daylight Time)
+author: Jason Rogahn MD
+date: Mon Dec 13 2021 06:54:44 GMT-0500 (Eastern Standard Time)
 ---
-At aut quasi deserunt et quod. Eos cupiditate voluptatem exercitationem quia eos repudiandae. Et natus enim. Dignissimos iure consequatur. Repellat sed repudiandae eos et quia.
+Eaque voluptate nam nisi eius magni ratione illum omnis officia. Quod omnis quod. Qui et beatae nemo. Velit vitae expedita saepe numquam.
 
- Nihil aliquam aut libero. Et voluptas dolorum. Consequatur consequuntur qui repellat debitis voluptas libero nisi dolor autem. Velit tempore quisquam sed totam maxime sequi iusto sunt blanditiis.
+ Est placeat illo id cumque ad fuga aut iste molestias. Eligendi adipisci non omnis. Dolor quae et quam nesciunt earum vel consequatur ut.
 
- Impedit consectetur quo ut voluptate est sit. Illum quia odio ipsa. Quas nihil dicta qui numquam ea perferendis et rerum et. Eum sunt possimus vel rerum rerum tempora. Id accusamus et eius rerum et at.
+ Et numquam officia ut repellat eos laborum nobis inventore corporis. Quis voluptas error aut quis ea. Est et quia maiores et id vitae possimus odit maiores. Eos quibusdam et iste. Assumenda velit perferendis placeat. Officia possimus sunt qui.
