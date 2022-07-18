@@ -1,10 +1,10 @@
 ---
 title: vitae ducimus qui iure fugit
-author: Ramona Schoen
-date: Tue Jun 07 2022 10:02:51 GMT-0400 (Eastern Daylight Time)
+author: Fernando Rohan MD
+date: Sun Jan 09 2022 22:53:56 GMT-0500 (Eastern Standard Time)
 ---
-Est aut aliquid qui hic ipsum repellat fugiat ut repellat. Repellendus voluptatem ratione ratione iusto eos laboriosam. Inventore voluptatem ipsam dolores dicta iure velit voluptatem voluptatem. Sed at atque voluptatem et recusandae. Dignissimos et atque.
+Aut et rerum culpa et voluptatem rerum magni inventore architecto. Hic assumenda blanditiis beatae officiis provident dolorem. Velit occaecati necessitatibus. Repudiandae facilis aut et.
 
- Et quo voluptas maiores. Id suscipit explicabo laudantium nemo aut assumenda. Quaerat dolorem rerum sunt architecto eos possimus quae qui ratione. Enim eum possimus esse dicta distinctio. Culpa nobis distinctio molestiae adipisci. Quod dignissimos cupiditate.
+ Eius nisi laborum dolore tempore aliquam excepturi enim ea ut. Ducimus beatae consequatur consequatur eaque sit corporis non. Et sit autem dolor impedit exercitationem optio nisi minus. Officiis consequatur eum aut. Nemo ullam fugit doloribus nihil quaerat dolore sit ducimus quidem. Aliquam est quas minus aut libero mollitia ullam ipsam quisquam.
 
- Sed laborum laudantium saepe sed nam vel ipsa. Alias sit suscipit ut et reiciendis. Et quis dolore quasi quaerat natus unde.
+ Vero temporibus exercitationem temporibus maiores fugit natus ad. Tempore voluptatibus nihil aspernatur corrupti tempora vitae quos corporis. Officia autem inventore id deleniti molestiae. Accusantium laborum atque ex voluptatibus quia officia quasi dolor architecto.
