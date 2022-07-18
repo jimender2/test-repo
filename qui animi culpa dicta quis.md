@@ -1,10 +1,10 @@
 ---
 title: qui animi culpa dicta quis
-author: Opal Brown
-date: Sun Aug 22 2021 16:49:34 GMT-0400 (Eastern Daylight Time)
+author: Jill Kunze Sr.
+date: Mon Jul 26 2021 15:35:13 GMT-0400 (Eastern Daylight Time)
 ---
-Minus recusandae provident accusamus qui eum quod corrupti quia provident. Excepturi et dolores vel accusamus esse magnam maiores saepe. Recusandae aut perspiciatis voluptas rerum fugit nihil. Tempore vel deleniti voluptatem sit doloribus dolor voluptatem et. Tempore consequatur reiciendis consequatur.
+Et tenetur perferendis quia. Aut autem et debitis sit. Aliquid sed alias consequatur maiores ut veritatis iste et quis.
 
- Vero adipisci consequatur facilis est dolor hic ipsa doloribus. Ab voluptatem exercitationem. Id explicabo maiores eligendi assumenda quia veritatis vero soluta autem. Enim sit modi ea odit pariatur iure.
+ Qui quaerat incidunt tempora quis sunt beatae. Quia quo maxime quo sed autem. Est eveniet aperiam corporis quam voluptas numquam sunt. Quaerat veritatis sunt sed et et eos debitis.
 
- Repudiandae porro aut quia. Ipsam voluptate doloribus blanditiis nisi. Earum assumenda et dolor enim atque. In eius vel vero. Distinctio saepe eum qui et eius aliquid provident. Enim excepturi dolores aut vel nam quasi.
+ Non explicabo voluptates neque recusandae. Dolores voluptas eum. Eum sit velit omnis dolores.
