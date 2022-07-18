@@ -1,10 +1,10 @@
 ---
 title: nostrum ab nam et architecto
-author: Norman Purdy
-date: Wed May 18 2022 15:28:33 GMT-0400 (Eastern Daylight Time)
+author: Darrell White PhD
+date: Mon Jul 26 2021 19:09:50 GMT-0400 (Eastern Daylight Time)
 ---
-Doloremque quisquam qui iure. Quia excepturi dolores dolores porro cupiditate voluptatum expedita. Ratione unde quam.
+Asperiores assumenda ut consequatur. Ipsam sint libero quod. Nam tempora dolor reprehenderit aspernatur fugit. Assumenda non aut dignissimos enim aut.
 
- Fuga laborum quia laborum nemo nobis. Rem facilis corrupti et ut sequi et aperiam. Sequi temporibus ut dolores itaque velit blanditiis magnam. Nihil et officia id fuga explicabo consectetur dolor voluptas labore.
+ Ut nesciunt commodi tempora vero nihil voluptatem illo sed pariatur. Ea soluta debitis amet at qui necessitatibus ducimus. Excepturi magni blanditiis sunt. Unde aliquam et explicabo fugit.
 
- Ut dolore porro nesciunt autem explicabo repellendus. Rerum a sequi. Pariatur voluptate quos ut. At aperiam aut magni natus numquam accusamus rerum debitis. Veritatis qui nisi sed sit saepe.
+ Id beatae facere. Consequatur accusamus molestiae ad sed. Modi tempore in consequatur omnis unde atque odit.
