@@ -1,10 +1,10 @@
 ---
 title: aut id debitis laborum et
-author: Ruth Quigley DDS
-date: Sun May 08 2022 21:30:36 GMT-0400 (Eastern Daylight Time)
+author: Dr. Johnnie Schamberger
+date: Fri Apr 15 2022 22:29:45 GMT-0400 (Eastern Daylight Time)
 ---
-Culpa dolor rerum doloremque. Id quibusdam qui consequuntur id quis quaerat delectus quod quia. Voluptate et ab nesciunt porro est.
+Ipsum minus quae sunt quas voluptatum ut rerum. Quos sit praesentium nulla omnis non sit. Quae ut voluptatem laudantium. Minus optio id quis voluptatibus neque modi qui.
 
- Debitis optio recusandae rerum autem sint vero repellat. Dignissimos optio harum quae. Non optio vel possimus. Suscipit quibusdam est. Dolores facilis iusto ipsa et deserunt et. Ratione quis veniam earum voluptates.
+ Iste voluptatibus assumenda mollitia et modi corrupti. Incidunt at repellendus ex ad autem eveniet qui sed. Rerum ut delectus doloribus. Commodi possimus voluptas odit voluptatem corporis laborum facilis. Voluptas molestias nihil illum vel assumenda accusamus corrupti vel. Quo veniam ex fugiat repellat eos ducimus.
 
- Ut recusandae sed molestias labore rerum doloribus. Dignissimos praesentium vero vitae possimus facilis nobis sunt ipsa. Nam totam quas inventore esse. Fugiat amet provident architecto id esse laudantium praesentium sed. Et numquam cupiditate tenetur quis facere. Voluptatum consequuntur sed non aliquam sunt consequatur.
+ Doloribus molestias minus autem dolores. Vero hic quas eligendi aperiam itaque nostrum incidunt fugit. Enim reiciendis voluptatem magni deleniti velit quia illum. Ex assumenda consectetur cumque dolor. Provident labore qui quo sit nulla soluta iste.
