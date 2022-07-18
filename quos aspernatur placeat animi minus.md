@@ -1,10 +1,10 @@
 ---
 title: quos aspernatur placeat animi minus
-author: April Goyette
-date: Fri Apr 29 2022 17:45:51 GMT-0400 (Eastern Daylight Time)
+author: Leona Goyette MD
+date: Tue Mar 29 2022 02:30:17 GMT-0400 (Eastern Daylight Time)
 ---
-Nisi dolorum molestiae doloremque facilis a. Dolor voluptas quia rerum vitae quis aperiam nesciunt quasi. Excepturi et voluptatibus. Accusantium harum nesciunt. Quas natus et vero et repudiandae. Illo numquam sunt et.
+Ad perspiciatis architecto. Dolor et debitis iure enim qui. Ea placeat qui alias quod qui excepturi soluta ratione quos. Fugiat qui porro iusto.
 
- Aut dicta minus dolor. A rerum expedita omnis voluptas sunt. Dolore expedita possimus dolores quia corporis. Reprehenderit vero sapiente quasi aspernatur sit. Qui non perspiciatis modi quibusdam explicabo non.
+ Tempora repellat eos debitis dolore totam. Occaecati voluptates ut exercitationem et tempora ea et mollitia. Numquam nisi et minima suscipit. Ducimus exercitationem ut porro debitis et.
 
- Non minima in non adipisci. Dolores commodi in et in ipsam. Quis modi nemo ullam et velit illum. Odit fuga illum soluta rerum sed nostrum.
+ Est et sequi. Eveniet eum quasi beatae suscipit ab quia quis. Accusantium quam sed.
