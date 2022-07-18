@@ -1,10 +1,10 @@
 ---
 title: ea ut aut voluptas blanditiis
-author: Terrance Wolf MD
-date: Tue Jan 18 2022 04:32:01 GMT-0500 (Eastern Standard Time)
+author: Roger Ritchie
+date: Thu Jan 20 2022 08:21:32 GMT-0500 (Eastern Standard Time)
 ---
-Repellendus numquam sed. Vel quidem suscipit sed vero ratione nam id. Sunt ut rerum pariatur minus inventore cumque quae.
+Aut in ut distinctio fuga. Qui facere natus. Ex quae sed perferendis esse corrupti ex ea. Libero ut ea.
 
- Nihil earum laudantium dolorum ea et omnis aspernatur sed excepturi. Aut voluptas reprehenderit et quia corrupti ipsa sed. Vel eos doloribus amet nemo. Ut sit quod sint.
+ Nihil qui aut. Aut optio ut harum porro provident quisquam facere qui delectus. Velit distinctio adipisci atque placeat enim et et tenetur. Quidem nobis corporis nobis sed sed non distinctio rerum eum. Est numquam consequuntur tempore maxime nobis velit sit sit.
 
- Non sint voluptatum inventore. Possimus dicta repellat consequuntur omnis libero ut eligendi. Consequatur assumenda iure ducimus quis fugiat incidunt corporis. Nihil modi qui omnis sit. Officia voluptatem adipisci omnis est. Saepe debitis ad et adipisci beatae eos.
+ Dolor quis ipsum cumque aliquid. Maxime possimus ea. Aut tenetur minus qui tempore tempora.
