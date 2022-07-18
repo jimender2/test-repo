@@ -1,10 +1,10 @@
 ---
 title: ut labore rerum ut aut
-author: Dr. Roger Swift
-date: Sat Nov 20 2021 17:58:22 GMT-0500 (Eastern Standard Time)
+author: Jonathan Ankunding DDS
+date: Sun Jan 23 2022 22:44:25 GMT-0500 (Eastern Standard Time)
 ---
-Odit est ipsa. Et optio laudantium omnis pariatur esse. Voluptas ipsa velit beatae nobis voluptas quas amet. Excepturi quam quam sint commodi. Ut odio quia.
+Quo optio odit accusantium molestias quasi recusandae voluptatibus maiores nihil. Placeat nemo illo dolores quia aliquam. Accusamus ad quia et sed laboriosam qui architecto earum. At dolorum modi est omnis quae et expedita.
 
- Minus nisi sapiente. Sit ea impedit consequatur voluptatem debitis amet. Est dolores nobis consequuntur assumenda quia ducimus fuga.
+ Fugiat voluptas amet aut nam voluptatem. Qui odio sit sunt nihil mollitia beatae. Vel dolores aut. Et natus nemo. Ratione et provident.
 
- Impedit sint quis quo quibusdam inventore. Nulla sunt nobis assumenda enim repellat ipsum qui. Corrupti commodi architecto quas voluptates voluptates. Quod magni est voluptatum quam veritatis quo ratione doloribus. Quia mollitia velit perferendis. Vitae facilis culpa fugit ipsa.
+ Quasi sit veritatis ut amet. Dicta earum molestias qui veniam. Sequi nulla quibusdam placeat voluptatem consequuntur voluptates. Impedit odio magni dolores tempora laboriosam autem. Error eaque sed atque voluptatem voluptatum sit. Animi ut voluptatibus ad.
