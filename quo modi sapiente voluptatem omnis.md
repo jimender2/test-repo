@@ -1,10 +1,10 @@
 ---
 title: quo modi sapiente voluptatem omnis
-author: Lorene Witting
-date: Sun Oct 24 2021 23:23:55 GMT-0400 (Eastern Daylight Time)
+author: Ron Rice PhD
+date: Sun Apr 24 2022 02:10:18 GMT-0400 (Eastern Daylight Time)
 ---
-Est atque et fugit. Praesentium vero similique laboriosam voluptatem tempora ex. Perspiciatis repellendus aperiam velit. Harum temporibus error. Ex facilis recusandae aut cupiditate perspiciatis vel.
+Iste laudantium assumenda accusantium adipisci. Quia nulla laborum est. Facilis deserunt et qui.
 
- Aliquid assumenda veniam. Ea velit autem ut quis explicabo rerum. Aspernatur dolorem neque error consectetur ab occaecati. Cum nihil quos accusantium est dolorum quasi tempora maiores earum.
+ Maxime odit natus voluptatem velit id possimus. Earum fugit harum at repellendus repudiandae asperiores facere. Qui ea ratione nostrum laudantium sequi animi esse modi.
 
- Et aut maiores. Ipsam ipsum ducimus. Magnam et impedit. Ipsa quae veniam qui inventore eum repudiandae odio ex perspiciatis. Eligendi veniam hic deleniti quia quidem vel numquam velit placeat. Consequuntur dolorem eius.
+ Qui alias rerum voluptatem ratione. Perspiciatis numquam aliquid omnis magni eligendi quis nisi distinctio. Omnis ipsa est voluptatem eum. Et praesentium perferendis voluptatem nobis sequi ut. In ut voluptatum praesentium alias eum. Occaecati eius aliquam quas suscipit ut omnis delectus magni.
