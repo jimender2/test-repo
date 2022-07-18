@@ -1,10 +1,10 @@
 ---
 title: sapiente dicta et sapiente vero
-author: Margie Harber
-date: Fri Jul 15 2022 15:35:33 GMT-0400 (Eastern Daylight Time)
+author: Mitchell Waelchi
+date: Fri Jul 08 2022 11:27:08 GMT-0400 (Eastern Daylight Time)
 ---
-Velit asperiores alias nisi perspiciatis ab reiciendis. Soluta rerum voluptatem provident. Deleniti sapiente ex et unde ipsam autem beatae consectetur maxime. Accusantium impedit et sapiente sequi eos tempora dolor expedita quasi.
+Quae sed laudantium nam voluptatem voluptas tempore earum esse. Sit dignissimos voluptatibus ipsum. Et aut culpa optio qui esse perferendis corporis omnis qui. Accusamus aut unde. Magnam unde ea est sit maiores commodi placeat molestiae corrupti. Qui facilis natus laudantium qui.
 
- Aut illo reprehenderit est maxime blanditiis eum sequi enim maxime. Sed eum qui expedita omnis qui rerum velit. Odit et placeat voluptates quis rerum cupiditate dolore minima et. Aut exercitationem sapiente autem. Voluptatibus distinctio quia occaecati occaecati veritatis non qui sapiente nulla.
+ Laudantium vitae doloribus aut excepturi est repudiandae vel voluptas debitis. Aut minus necessitatibus inventore et. Nihil saepe sit id ut quidem vel. Voluptates occaecati impedit et itaque aut aut quaerat ipsam. Placeat dolorem expedita. Est aperiam doloremque exercitationem a ab ut voluptas.
 
- Quisquam nam quibusdam ipsa aut dicta dicta autem. Autem dicta dignissimos. Molestiae inventore nobis qui. Molestiae deserunt assumenda expedita aliquid rerum minima id accusantium asperiores. Nihil fuga quo iusto amet voluptas. Sit libero cupiditate occaecati itaque.
+ Totam cum qui ad nisi. Quia incidunt cum. Alias ea quibusdam reiciendis perferendis id. Est odio doloremque et. Libero dolorem itaque at quidem corporis magnam occaecati. Animi laborum consequatur molestiae molestiae itaque dolores placeat.
