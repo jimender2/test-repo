@@ -1,10 +1,10 @@
 ---
 title: expedita ut aliquid eaque nesciunt
-author: Estelle Nikolaus
-date: Sun May 22 2022 15:54:22 GMT-0400 (Eastern Daylight Time)
+author: Tasha Heathcote MD
+date: Sat Aug 14 2021 21:29:21 GMT-0400 (Eastern Daylight Time)
 ---
-Necessitatibus culpa delectus pariatur ut vel quisquam est quis sapiente. Vero eius recusandae et molestiae doloremque alias dolor qui. Necessitatibus quidem aliquid. Et exercitationem voluptas sunt voluptatem ut optio saepe et atque. Officia numquam eos doloribus. Minima aut error ipsa error qui.
+Ratione molestias earum magni nesciunt. Id dolor optio quo et enim vero. Et similique quisquam ipsam porro vel adipisci officia.
 
- Omnis accusamus amet dolorem doloribus esse. Omnis reprehenderit corporis dolorem error hic modi assumenda. Alias quae soluta. Recusandae odit enim et.
+ Quisquam perferendis aperiam amet rerum. Earum animi nam quia voluptatem ut voluptas ut fuga. Eveniet ea dolore. Nihil nam sit ut.
 
- Blanditiis aperiam sed ut. Sed corporis iusto ut. Sit corrupti distinctio deserunt et cumque. Dignissimos voluptatem minima accusantium recusandae sit dolorem temporibus. Quia ut odit unde culpa. Repellat autem at sed atque aut qui a.
+ Sint rerum ea placeat. Quia quod aspernatur illo architecto perferendis iure natus aut quod. Suscipit voluptatem sit tempore soluta explicabo qui. Explicabo sint qui ipsam inventore placeat nihil. Iusto quisquam nihil quo est et quia in non. Vel nisi provident quaerat aspernatur explicabo sit.
