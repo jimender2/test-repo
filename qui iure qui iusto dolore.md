@@ -1,10 +1,10 @@
 ---
 title: qui iure qui iusto dolore
-author: Carlton McLaughlin
-date: Sat Nov 20 2021 14:31:16 GMT-0500 (Eastern Standard Time)
+author: Ross Boyer DDS
+date: Sun Mar 06 2022 02:16:09 GMT-0500 (Eastern Standard Time)
 ---
-Dolores dolores quasi autem corporis perspiciatis. Sint laboriosam vel voluptate. Dolores exercitationem illum nihil sed. Ducimus inventore sit aut libero qui dolorem maxime ut omnis. Similique ex sequi. Eligendi dolorem nam molestiae reiciendis voluptatibus consectetur harum esse aliquid.
+Sit quos qui repudiandae. Nisi ut eaque. Libero quam sit quod saepe non qui fugit. Iste delectus aspernatur sint quisquam. Doloribus saepe dignissimos ipsam.
 
- Aut et alias non qui est voluptatem vel minus. Necessitatibus et et ea sed temporibus quas perspiciatis. Rem consequatur vel ut dignissimos velit atque et voluptate alias.
+ Quo ipsa culpa cum eligendi cumque ea. Quos et id a quo voluptatibus. Dolore error exercitationem.
 
- Laboriosam deserunt aliquid officiis sed occaecati architecto in. Necessitatibus quia quis fugiat sunt illo. Autem consequatur ducimus necessitatibus consequatur id dignissimos commodi ut.
+ Nesciunt aut aut repellendus esse est eaque voluptas sunt. Ratione quia et et eveniet neque sed eaque. Asperiores quis quia mollitia. Sit ipsum qui ut omnis non. Dolor sit quod quo modi et ut eligendi. Vero sit nam fugit a et consectetur rerum.
