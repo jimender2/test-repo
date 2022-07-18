@@ -1,10 +1,10 @@
 ---
 title: rerum quae ea temporibus fuga
-author: Kristie Halvorson DDS
-date: Tue Aug 10 2021 17:52:07 GMT-0400 (Eastern Daylight Time)
+author: Dianna Wintheiser
+date: Tue Aug 10 2021 14:11:30 GMT-0400 (Eastern Daylight Time)
 ---
-Quia explicabo error quasi. Omnis perferendis iusto aliquam quo minus qui officia. Iure enim totam. Sint est architecto tempore aut quod rem aliquam tempore. Impedit placeat voluptatum unde in vel cupiditate dolores. Natus consequatur veniam voluptatibus quisquam fugit voluptatum.
+Sed possimus et fuga nemo sint. Dolorem vel alias libero dignissimos eum velit eligendi ullam consequatur. In est neque occaecati natus ut quia sit aut minima. Deleniti a eius officiis. Voluptas quo sunt. Repellat dolorum voluptate reprehenderit provident vel culpa dolorum.
 
- Ratione sed error ipsam rerum quos. Consectetur tempore voluptatibus aut aspernatur autem itaque. Ipsa voluptas ex dolore quam at ut vero impedit. Molestiae neque nisi earum. Et et facere laudantium a dolor. Minus optio perspiciatis in dolore earum repellat reiciendis molestiae.
+ Eveniet nihil perferendis incidunt non cumque. Minus ad molestiae doloremque ad commodi quidem. Ab occaecati molestias provident aperiam beatae culpa accusamus. Aliquid dolore et voluptatem harum voluptas sed quaerat. Praesentium laboriosam iste aut iste beatae qui possimus vel.
 
- Exercitationem nesciunt quibusdam consequatur debitis. Eveniet magnam aperiam temporibus necessitatibus occaecati. Dolor qui est cupiditate vero ratione qui.
+ Suscipit eos molestiae. Distinctio et deserunt voluptas quis sapiente aliquam. Dignissimos asperiores ex. Voluptas culpa recusandae et voluptas est odio hic qui voluptates. Rem quae velit excepturi.
