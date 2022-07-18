@@ -1,10 +1,10 @@
 ---
 title: aperiam recusandae aut nesciunt iste
-author: Barbara Rohan
-date: Mon Jan 03 2022 19:08:30 GMT-0500 (Eastern Standard Time)
+author: Katherine Hand MD
+date: Wed Sep 15 2021 08:14:54 GMT-0400 (Eastern Daylight Time)
 ---
-Excepturi facilis occaecati eligendi numquam sed. Nemo ut iure. Impedit quisquam pariatur et deserunt porro atque minus facere.
+Iure distinctio dolor ut beatae voluptatum. Minima voluptatum repellendus alias corrupti non voluptas. Eum doloribus dolores totam deserunt consectetur. Id ut libero vitae explicabo sit est. Inventore in maxime omnis omnis maxime id. Sint illo qui voluptates sed accusantium.
 
- Quia saepe nostrum deleniti ducimus atque. Porro suscipit voluptatem rerum et eveniet voluptas. Et in et quibusdam.
+ Ipsa error quasi eveniet sapiente voluptatem ratione voluptatem quia. Consequuntur officiis impedit omnis ratione expedita ut autem officia voluptatem. Laudantium officiis aut qui commodi. Asperiores eum placeat sint quia consequatur harum quam. In aut nobis laborum maiores veritatis.
 
- Doloremque qui reiciendis culpa minus ipsa sit odit. Quo beatae et fugit sequi maxime numquam. Et provident numquam laudantium nulla. Accusamus quis non aspernatur ratione. Quibusdam dignissimos officiis reprehenderit adipisci et possimus sint.
+ Magnam rerum commodi est nihil. Sed dicta aut ut eligendi. Ullam et reiciendis incidunt expedita dolor. Ea autem nam qui laborum. Cum sit sint distinctio rerum.
