@@ -1,10 +1,10 @@
 ---
 title: magni aliquid et cumque sint
-author: Kristi Feeney
-date: Thu Oct 28 2021 14:34:52 GMT-0400 (Eastern Daylight Time)
+author: Cody Reichel
+date: Sat Oct 23 2021 19:14:34 GMT-0400 (Eastern Daylight Time)
 ---
-Totam assumenda dignissimos rerum est porro aliquam enim. Excepturi eum dolores eveniet eos deleniti deleniti eligendi aliquid. Dolore sit quam quae fugit magni officia. Libero delectus culpa optio enim laudantium quaerat voluptas quam culpa. Aspernatur quo temporibus aspernatur sint officia dicta eos velit. Expedita nam tenetur in aut blanditiis.
+Iste sint voluptatem officiis itaque. Architecto quas fuga rerum hic sed nesciunt. Aut exercitationem rem aut autem unde molestiae ea.
 
- Quaerat voluptatem porro reprehenderit itaque eum voluptatem culpa. Dolorem rerum illo neque vel minus. Quam et ut atque id dicta aliquid rem perspiciatis. Non fugiat non.
+ Est ipsum odit. Facere nemo molestiae tenetur maxime voluptatem molestiae sit. Sequi minima quia repellendus sit quia est repudiandae.
 
- Possimus cumque hic. Qui voluptas porro reiciendis ea aperiam animi sit. Et voluptatem eligendi distinctio id neque perspiciatis facilis. Minus iste officia voluptate.
+ Vero quo incidunt optio rerum nesciunt officiis modi et. Placeat exercitationem perspiciatis. Deserunt ut natus ea voluptatibus. Suscipit omnis corrupti cupiditate sint doloremque. Nisi est qui eius velit nam in soluta. Dolorum iusto ea.
