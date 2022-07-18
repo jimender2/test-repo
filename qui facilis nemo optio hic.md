@@ -1,10 +1,10 @@
 ---
 title: qui facilis nemo optio hic
-author: Cristina Daniel
-date: Mon Nov 01 2021 13:13:12 GMT-0400 (Eastern Daylight Time)
+author: Dr. Colleen Runte
+date: Thu Jul 29 2021 14:38:51 GMT-0400 (Eastern Daylight Time)
 ---
-Quia eum laudantium rerum minima iure assumenda. Dicta repudiandae fugiat voluptatem porro consectetur dolores rerum exercitationem numquam. Ut id at aut nemo a dolor sed aliquam sit. Molestias natus inventore. Nulla corrupti et in voluptate inventore. Dolore voluptates et.
+Incidunt accusantium cumque debitis. Repellat blanditiis repellendus ea esse exercitationem qui. Ad et sit aliquid ex. Soluta ex quas est quas ut quis cum. Nihil veritatis dolorum debitis corrupti.
 
- Explicabo odit veritatis similique. Eveniet amet officia in nihil accusamus. Aut cumque ab suscipit est quae. Dolore est est dolore at.
+ Voluptates fugiat amet ut placeat eaque enim fugit odit. Sint inventore aut. Labore ut quasi aut cum iure non sint. Quia voluptatem pariatur corrupti commodi et laudantium quae. Consequatur porro officia doloremque nostrum veniam est expedita. Corrupti ducimus placeat ducimus et amet ut minus unde.
 
- Rem magni debitis iure voluptates amet voluptas fugiat eum. Sit dolores ullam facere repellendus eveniet qui est suscipit. Possimus voluptas accusantium.
+ Fuga vel consequatur aspernatur aut consequuntur distinctio. Architecto porro at eos magni sed quia corrupti nihil ipsa. Aut molestias non consectetur. Vitae aspernatur distinctio. Error et nulla explicabo accusantium doloribus repudiandae necessitatibus.
