@@ -1,10 +1,10 @@
 ---
 title: repellat nemo odit deleniti est
-author: Ginger Rath
-date: Sun Jun 26 2022 06:32:57 GMT-0400 (Eastern Daylight Time)
+author: Dr. Adrienne DuBuque
+date: Fri Apr 08 2022 21:17:48 GMT-0400 (Eastern Daylight Time)
 ---
-Dolores nihil maxime ea eius suscipit est sed. Quasi est facere hic a earum dicta tempora. Cum nulla quia sint rerum sed minima. Enim illum sit quibusdam at laborum.
+Velit minima dolorem facilis voluptates quis architecto corporis animi est. Magnam unde qui nihil corrupti est. Eaque occaecati quasi corporis voluptatem incidunt. Dolores impedit earum id tempora sequi officia impedit labore qui.
 
- Recusandae et molestiae aut ad reiciendis est. Totam eos consectetur ut iste. Vel eum unde. Ut illum saepe molestias quae cupiditate in aut. Aperiam enim architecto. Aut voluptate laborum culpa deleniti enim incidunt dolore provident qui.
+ Hic quo et architecto totam. Dolore voluptates laborum illo. Occaecati sint tempore molestias eos consequatur.
 
- Velit non quos consequatur. Quia in ipsa ullam eum molestiae non. Vitae non ad officiis veniam distinctio suscipit. Aut quod est minus nam mollitia magni impedit commodi consequatur. Voluptas dolorem suscipit rerum. Eos debitis sit dolore id eum.
+ Cumque quo pariatur omnis. Blanditiis illum pariatur. Provident et voluptatum voluptates cumque ut delectus impedit exercitationem. Quasi deserunt eligendi mollitia blanditiis. Voluptatem optio sunt et est magni expedita qui consequatur. Pariatur autem neque labore.
