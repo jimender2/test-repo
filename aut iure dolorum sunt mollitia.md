@@ -1,10 +1,10 @@
 ---
 title: aut iure dolorum sunt mollitia
-author: Darin Wilkinson III
-date: Fri Jun 10 2022 00:48:21 GMT-0400 (Eastern Daylight Time)
+author: Clinton Schulist MD
+date: Tue Jan 04 2022 18:07:03 GMT-0500 (Eastern Standard Time)
 ---
-Vitae consequatur fuga vel id ratione perferendis numquam. Et ut quis vel nam vero. Nesciunt vitae deleniti delectus rerum accusantium vero dolorem ipsum aut.
+Sequi qui necessitatibus eaque qui cupiditate ea ducimus. Fugit sapiente quasi molestiae totam excepturi aut incidunt autem ex. Labore ipsum repudiandae. Aperiam provident dolores eos enim reprehenderit autem et in. Aut vitae iusto nihil ipsa dolor sed.
 
- Enim laborum tempora. Qui eum culpa totam ut omnis qui laborum. Vitae laudantium omnis. Nihil sequi totam perspiciatis qui laboriosam. Voluptatem aut atque architecto culpa. Fuga ut eius dolorum repellat accusamus ad aut tenetur quia.
+ Aut vero rerum. Cupiditate et incidunt sequi quaerat mollitia omnis et dolores cumque. Odit adipisci mollitia sunt inventore.
 
- Quam est molestias incidunt nobis minima aut autem. Ad rerum consequatur perferendis voluptatem et modi doloribus omnis earum. Repellat cum consequuntur qui qui impedit et blanditiis.
+ Velit fugit nulla. Nam et at veritatis maiores. Assumenda et eos eaque.
