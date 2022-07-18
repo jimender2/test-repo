@@ -1,10 +1,10 @@
 ---
 title: ut error vitae nulla ex
-author: Holly Rempel
-date: Fri Mar 18 2022 15:52:08 GMT-0400 (Eastern Daylight Time)
+author: Victor Krajcik MD
+date: Fri Apr 15 2022 21:19:40 GMT-0400 (Eastern Daylight Time)
 ---
-Aut eos est repellat eligendi autem omnis quam. Itaque nisi perferendis eveniet atque. Deleniti totam cupiditate et dicta eaque sint nemo dolores. Id sit rem veniam aut numquam suscipit quia libero.
+Ex labore quia et nihil. Ducimus praesentium repellat fuga laudantium delectus odio maiores. Dolores aspernatur quae ut dignissimos sunt. Sit consequatur qui vitae.
 
- Voluptatem dolorem voluptatibus deleniti itaque rerum. Hic ducimus hic porro officia illo. Distinctio aut deserunt nobis ut sunt sint sed nobis non. Unde est facilis consectetur consectetur.
+ Deserunt quis sunt repellat odit quia suscipit doloremque eius. Magni unde debitis quod expedita doloribus voluptatem quidem. Tenetur mollitia quia tempora deleniti. Ducimus ut dolorem voluptate. Itaque voluptatem omnis ut et dolorum voluptas dolore. Nihil doloribus et.
 
- Voluptatem illum voluptatum sapiente amet ratione itaque dolorum asperiores assumenda. Id libero quia. Sequi consequuntur nemo voluptatibus quis doloribus optio. Porro ratione fugiat aut. Dicta id tempore tempora.
+ Est tempora rerum magni. Ipsam dolorum omnis eum et. Autem itaque officiis exercitationem ducimus repellendus. Nam corrupti dolorum ducimus deleniti deserunt.
