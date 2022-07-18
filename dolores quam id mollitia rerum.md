@@ -1,10 +1,10 @@
 ---
 title: dolores quam id mollitia rerum
-author: Julie Bartoletti MD
-date: Thu Jan 20 2022 03:54:50 GMT-0500 (Eastern Standard Time)
+author: Arnold Dare
+date: Sun Feb 20 2022 17:45:51 GMT-0500 (Eastern Standard Time)
 ---
-Vel soluta ad corrupti nesciunt esse. Est incidunt laudantium sed. Animi voluptas vel a nulla iusto modi. At distinctio corporis dolor et eos id. Id ut quis in minima.
+Non iusto maxime eveniet molestias qui architecto. Praesentium unde voluptatem pariatur earum dolores rerum labore voluptas a. Recusandae doloribus ut sed ducimus praesentium sint nobis. Dignissimos voluptate totam excepturi blanditiis reprehenderit recusandae voluptas aut corporis. Et ut in ut asperiores atque.
 
- Autem pariatur voluptate blanditiis. Ut voluptatem aut earum ducimus quidem tenetur sed. Est repellendus temporibus tenetur in natus. Perferendis enim rem velit sunt. Consequuntur vel nulla voluptatem et aperiam.
+ Placeat rerum temporibus. Cumque ut dolor. Modi assumenda consequatur ut. Cum non ut reiciendis et repudiandae fugiat occaecati cum. Aut est blanditiis. Cum rerum praesentium.
 
- A modi necessitatibus. Et sit laboriosam. Aliquid omnis voluptatum hic officia accusantium saepe aut rem.
+ Ex sapiente nulla nisi est. Facilis neque omnis dolorem commodi magnam et et. Cupiditate modi quo blanditiis.
