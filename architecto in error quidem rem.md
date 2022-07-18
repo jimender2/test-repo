@@ -1,10 +1,10 @@
 ---
 title: architecto in error quidem rem
-author: Jimmy Ernser
-date: Mon Aug 16 2021 19:46:37 GMT-0400 (Eastern Daylight Time)
+author: Mike Pouros
+date: Sat Dec 11 2021 02:09:51 GMT-0500 (Eastern Standard Time)
 ---
-Suscipit sunt quia corporis dolor repellendus quia voluptatum veniam. Harum ut maiores delectus distinctio. Nemo et voluptatem. Aliquam ut quas aut odit nulla sint voluptas.
+Quod voluptas voluptatem animi dolorem. Repellendus quibusdam eos accusamus quia consequatur ipsum. Sint aliquid quisquam. Nihil quaerat odio delectus labore in rerum libero. Quam unde nam beatae aut sint a possimus. Incidunt quam dolorem voluptatum saepe itaque ea aut repellendus.
 
- Voluptatem neque nesciunt sed tenetur tempora sed ea nihil. Sint non repellendus aliquid recusandae est quae. Praesentium reprehenderit facere eum molestiae laborum in quia aut perferendis. Quidem voluptatum omnis quos inventore et rerum et totam.
+ Est voluptate consequatur est nostrum corrupti incidunt aperiam amet eum. Est deleniti debitis aut. Doloremque dolorem rem quia.
 
- Debitis accusamus veniam cumque temporibus dolores. Eligendi ipsa qui eos architecto officia corrupti explicabo dolores. Molestias quibusdam tempora necessitatibus facere nam repudiandae sequi voluptatum voluptates.
+ Doloremque iusto laboriosam eum. Velit sunt eum. Repellat quaerat eum. Provident quas et deserunt. Recusandae excepturi ducimus qui.
