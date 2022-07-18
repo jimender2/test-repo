@@ -1,10 +1,10 @@
 ---
 title: ut officia et maiores deleniti
-author: Elmer Schoen
-date: Mon Aug 02 2021 14:34:13 GMT-0400 (Eastern Daylight Time)
+author: Bradford Harber MD
+date: Sun Jul 03 2022 08:06:08 GMT-0400 (Eastern Daylight Time)
 ---
-Quas et aperiam sit ut doloremque. Ut ipsam eum possimus sit et eligendi quam. Dolorem commodi quae illo nemo ullam et ut. Blanditiis qui dolorem sunt voluptatem blanditiis cumque dolore et sed. Minima eum perferendis.
+Harum consequatur voluptas odio aliquid qui sed. Repudiandae nemo quia ducimus blanditiis sed expedita. Rerum magni qui sed aperiam magnam sit dolorem in consequatur.
 
- Error harum alias laboriosam impedit blanditiis architecto quae dolor ut. Quod praesentium debitis. Enim labore facilis temporibus quis enim aut voluptatem officia provident. Est magnam laborum sapiente velit corporis tempora.
+ Tenetur animi impedit. Necessitatibus corporis accusantium quas maiores impedit illo. Et perferendis et est nesciunt est neque similique et harum.
 
- Qui aut accusamus provident ea assumenda quae. Repellat id quod vitae dolor nulla et. Aut soluta rerum error quas. Hic eveniet voluptas qui et voluptas enim ea necessitatibus.
+ Amet omnis quisquam earum vel ipsum in. Necessitatibus et temporibus amet culpa hic. Ratione blanditiis eum. Dicta aspernatur et dignissimos.
