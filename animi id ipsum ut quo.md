@@ -1,10 +1,10 @@
 ---
 title: animi id ipsum ut quo
-author: Angelo Kirlin
-date: Sun Oct 31 2021 11:37:52 GMT-0400 (Eastern Daylight Time)
+author: Bert Gulgowski DDS
+date: Tue Oct 19 2021 23:28:20 GMT-0400 (Eastern Daylight Time)
 ---
-Eius autem et velit id id explicabo dicta nisi inventore. Aspernatur consequatur eos iure esse delectus facere voluptas alias vel. Excepturi est excepturi qui saepe ipsa ducimus reiciendis ut. Voluptatem molestiae assumenda aliquam commodi nisi aliquam.
+Commodi quas debitis perferendis a cupiditate. Quia cum et qui qui. Provident libero omnis perspiciatis.
 
- Aut repudiandae dolorem sit omnis minima vel nesciunt laudantium fugit. Laboriosam dolores at officiis soluta incidunt adipisci debitis. Quod qui labore eum. Consequatur sit facilis qui sint aperiam commodi quasi veniam. Est ex pariatur nostrum amet dolor molestiae porro.
+ Dolorem optio nihil quia explicabo porro. Qui quos et rerum expedita sequi placeat. Dolor qui blanditiis.
 
- Necessitatibus aperiam quos vero vitae dolorem eos esse. Culpa quia error similique voluptatum aut. Vitae inventore enim expedita in est quia dolor.
+ Iusto nihil delectus rerum earum quia. Enim sed sint maiores qui omnis veniam similique. Aut ullam corrupti et qui. Autem repellat vitae hic excepturi rem iusto provident. Sed expedita autem laboriosam accusantium voluptatem repellat maiores consequatur aperiam. Ad ut eveniet quae non illum fugiat.
