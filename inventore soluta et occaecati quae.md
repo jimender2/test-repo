@@ -1,10 +1,10 @@
 ---
 title: inventore soluta et occaecati quae
-author: Carolyn Hane
-date: Wed Feb 16 2022 04:44:21 GMT-0500 (Eastern Standard Time)
+author: Vincent Swaniawski MD
+date: Wed Jun 22 2022 10:10:19 GMT-0400 (Eastern Daylight Time)
 ---
-Aut voluptatum aut. Dolor ipsum error dolor incidunt in quia incidunt. Unde suscipit molestiae sunt aut tempora. Et tenetur repellat distinctio. Aut ab accusantium.
+Doloribus ea aut nobis dolore ab. Fugit et aut. Omnis repellendus sunt vel cupiditate officiis et culpa facilis quae. Autem adipisci possimus voluptate architecto inventore.
 
- Vero ut qui ut nihil et nihil blanditiis. Reprehenderit ut dolore quia ut id. Repudiandae voluptates dolorem qui. Veniam voluptatem ut modi.
+ Eos reiciendis aliquam beatae qui fugit ut dolorum dolor. Laboriosam ab in accusamus cupiditate. Dolorem sed debitis voluptatem.
 
- Molestiae mollitia sequi. Sed facilis reprehenderit deserunt maxime inventore ea nam provident. Et pariatur non. Doloremque aliquid fuga sed officia. Quis est voluptatibus delectus repellat ut est.
+ Vitae dignissimos ut et aperiam. Officiis molestiae eum pariatur esse nisi dolores expedita aut ad. Deserunt totam quidem quis expedita iusto quidem et doloremque est. Tempora ullam nostrum fuga rem quis.
