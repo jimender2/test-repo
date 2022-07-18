@@ -1,10 +1,10 @@
 ---
 title: quam voluptatibus qui facere dolorem
-author: Shannon Jacobi
-date: Tue Jan 11 2022 12:36:25 GMT-0500 (Eastern Standard Time)
+author: Charles Cronin MD
+date: Sat Aug 28 2021 20:39:38 GMT-0400 (Eastern Daylight Time)
 ---
-Et eius et. Vitae rem neque magni dolorum deserunt incidunt labore. Quo quia quis enim. Et nostrum vel. A rerum praesentium ut expedita iste ratione vel suscipit quia. Cupiditate nihil et.
+Sit qui aut est deserunt mollitia consectetur enim voluptatem labore. Illo nulla aliquam mollitia enim rerum enim consequatur fugiat. Ut distinctio numquam id doloribus voluptatem nobis.
 
- Aut incidunt est. Nobis veritatis unde iusto consectetur animi quibusdam nobis quia voluptate. Consectetur eaque tenetur dolores in et ducimus temporibus vel odit. Deserunt omnis quo nemo sunt deserunt consequatur. Voluptatibus nostrum reiciendis eveniet nam et ullam sint.
+ Sint ratione a ex fugit dolorum atque alias eum maiores. Et tempore qui modi culpa. Dolorem quae quasi qui distinctio qui fugit modi. Quaerat et vel consequatur odio sint eius officiis accusamus fugiat.
 
- Nesciunt sed quam cumque quia inventore delectus veniam ipsam rerum. Rem velit cumque tenetur quia. Ullam ipsa repellendus aut veniam provident accusantium sunt ea non. Rerum ea eos veniam sit at.
+ Repudiandae ut velit voluptatem molestias quidem corporis ipsum aut. Culpa ipsam consectetur. Vero mollitia modi debitis aut omnis ipsa sed nisi.
