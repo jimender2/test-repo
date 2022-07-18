@@ -1,10 +1,10 @@
 ---
 title: quam voluptatibus qui facere dolorem
-author: Charles Cronin MD
-date: Sat Aug 28 2021 20:39:38 GMT-0400 (Eastern Daylight Time)
+author: Ginger Parker III
+date: Mon Aug 23 2021 19:10:34 GMT-0400 (Eastern Daylight Time)
 ---
-Sit qui aut est deserunt mollitia consectetur enim voluptatem labore. Illo nulla aliquam mollitia enim rerum enim consequatur fugiat. Ut distinctio numquam id doloribus voluptatem nobis.
+Aut vero quidem exercitationem itaque quidem. Quis molestiae voluptate cupiditate eos saepe necessitatibus tempore non. Aliquam quia autem assumenda doloribus suscipit quia. Velit quia culpa non.
 
- Sint ratione a ex fugit dolorum atque alias eum maiores. Et tempore qui modi culpa. Dolorem quae quasi qui distinctio qui fugit modi. Quaerat et vel consequatur odio sint eius officiis accusamus fugiat.
+ Nisi neque est. Ut rerum quam voluptas excepturi commodi ab voluptatem harum. Amet illo similique omnis sed rerum. Rerum alias doloremque ipsa. Aliquam voluptatem consequatur quis doloribus deleniti sequi. Rem possimus necessitatibus architecto ad temporibus.
 
- Repudiandae ut velit voluptatem molestias quidem corporis ipsum aut. Culpa ipsam consectetur. Vero mollitia modi debitis aut omnis ipsa sed nisi.
+ Ea ea sed ut harum doloremque rerum eum dolores. Sunt aliquam cum sequi porro quia alias. Numquam corporis ipsum sunt facere eligendi. Soluta aliquam reprehenderit quidem. Et ut qui perferendis dolores et. Deleniti nihil non officia nesciunt quia suscipit dolor.
