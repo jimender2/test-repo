@@ -1,10 +1,10 @@
 ---
 title: similique doloremque necessitatibus consequatur et
-author: Esther Harber
-date: Sat Jan 29 2022 07:03:10 GMT-0500 (Eastern Standard Time)
+author: Kim Fritsch MD
+date: Fri Jan 07 2022 08:24:54 GMT-0500 (Eastern Standard Time)
 ---
-Tempore voluptatum quas ut minus autem quia similique sunt omnis. Veniam recusandae deleniti maiores reiciendis est ut facilis tempora. Nemo officiis dolores iusto quia nostrum non voluptas. Occaecati repudiandae facilis animi. Temporibus aliquid temporibus assumenda non dignissimos.
+Iste explicabo dolore. Dolorum alias et itaque laboriosam. Dicta nulla fuga et corporis vel sit iusto.
 
- Quis porro assumenda officia autem magni dolorum qui. Explicabo possimus non. Sint rerum aut rerum amet animi deleniti dolor. Facilis accusamus sed est cumque impedit ut dolor quia eligendi. Voluptas illo qui hic commodi voluptatum animi non itaque.
+ Eius voluptatem quo et et est iure corporis nesciunt nobis. Adipisci magni excepturi. Quam totam quisquam est consequuntur ut quo. Velit cum est nisi tempore mollitia.
 
- Quisquam similique fugiat. Mollitia quos et officia velit delectus omnis sit quis voluptatibus. Ad sed voluptatum officia et beatae. Maiores dolores qui aut sequi nesciunt reiciendis voluptatem. Enim quisquam minus repudiandae porro vel aut.
+ Temporibus eos amet veritatis veritatis error amet aut. Architecto et consequatur rerum. Repellendus ipsam aliquid. Voluptas corrupti ea maxime animi et.
