@@ -1,10 +1,10 @@
 ---
 title: voluptatem assumenda est rem qui
-author: Frederick Jacobson
-date: Sun Oct 10 2021 16:45:41 GMT-0400 (Eastern Daylight Time)
+author: Johnnie Larkin I
+date: Sat Oct 09 2021 20:37:57 GMT-0400 (Eastern Daylight Time)
 ---
-Voluptatem architecto nihil est saepe sit in. Corporis delectus aut qui at exercitationem. Ea adipisci eveniet eum. Aut consequuntur praesentium maiores aut sed ducimus possimus.
+Exercitationem quidem vel. Commodi doloremque qui perspiciatis voluptas dicta. Temporibus fugiat officia quam tempora similique accusantium quo eos. Ex quam possimus iure ut suscipit sit est. Et expedita et libero delectus debitis occaecati ut dolorum illum. Optio voluptas impedit aliquam.
 
- Dolore sit dicta labore. Dolorum ipsam id. Accusamus perspiciatis maxime totam delectus velit quasi. Voluptates distinctio blanditiis in perferendis nostrum unde eos in qui. Velit sed eligendi. Error est dolorum ut dolor assumenda voluptate.
+ Adipisci dolorum iure iure et minus. Quam dolores quo temporibus accusamus ea eos voluptatem at. Voluptatem distinctio dolorem voluptas quis quasi nesciunt. Ut quasi nesciunt quisquam quam sequi.
 
- Quia totam ducimus corrupti voluptas voluptatem numquam. Soluta et exercitationem molestiae et sit accusantium repellat. Ut nesciunt et fugit dolor perferendis. Quidem qui similique sit minima.
+ Voluptas culpa quia ea. Consectetur sed et ut voluptas consequatur dolore ipsam. Sed molestiae enim.
