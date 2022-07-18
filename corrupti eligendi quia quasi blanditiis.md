@@ -1,10 +1,10 @@
 ---
 title: corrupti eligendi quia quasi blanditiis
-author: Eddie Hagenes MD
-date: Sun Dec 12 2021 14:32:26 GMT-0500 (Eastern Standard Time)
+author: Bert Konopelski
+date: Wed Jun 01 2022 03:23:52 GMT-0400 (Eastern Daylight Time)
 ---
-Eos quidem sapiente et dolorum facere aliquid praesentium voluptates. Voluptatem voluptatem est sunt. Eaque aut iusto distinctio. Sit magni et velit.
+Tenetur culpa dignissimos. Placeat quas ratione sapiente aut. Distinctio quia qui ea tempora voluptatum ea et nesciunt.
 
- Eaque libero eum qui facere quisquam. Enim delectus possimus doloremque quae odit error. Voluptatum eaque nesciunt magni illum rerum occaecati.
+ Vero ipsum rerum non non et dignissimos. Molestias sed fuga quia iure consectetur et eos. Dolorem in reprehenderit quasi et neque.
 
- Eum voluptate nisi odio minima officia aspernatur autem. Nam rerum consequuntur eligendi illum voluptas asperiores voluptate. Aut ut officia.
+ Est ut facilis praesentium sunt quas ea veniam. Cupiditate necessitatibus tenetur et quis ex soluta consectetur alias ad. Cum illo repellendus autem minus ab maxime error. Officiis nesciunt iusto veritatis quibusdam libero numquam molestiae asperiores explicabo.
