@@ -1,10 +1,10 @@
 ---
 title: quaerat nihil quidem facilis vero
-author: Shelley Price
-date: Thu Jun 16 2022 00:22:09 GMT-0400 (Eastern Daylight Time)
+author: Forrest Leuschke PhD
+date: Fri Jan 14 2022 19:49:06 GMT-0500 (Eastern Standard Time)
 ---
-Eum est dolore blanditiis dicta. Blanditiis doloribus dolorum. Beatae et incidunt omnis. Laborum consequatur exercitationem qui ut. Non quia pariatur aut quam minus reprehenderit eveniet.
+Dolores nam quis molestias nulla. Sapiente magni est delectus dignissimos optio in natus quo. Neque corrupti fugiat. Velit qui ullam ut vero autem porro vero provident assumenda. Eos aperiam consequatur fugit architecto sequi sed animi.
 
- Eum neque cupiditate unde. Fugit animi officiis possimus voluptas vel. Sunt molestiae consequatur aperiam quidem. Minus at voluptas nobis ut error exercitationem cum quaerat veniam. Asperiores porro ut sed odio perspiciatis.
+ Repudiandae eos facilis. Explicabo et aut voluptatem quaerat. Dolorem enim exercitationem aliquid aut eveniet dolores quod iste. Ex deleniti numquam et non est consequatur officia et veniam. Aut error in eius sunt placeat quam est.
 
- Occaecati delectus assumenda ratione sit placeat quo totam consequatur et. Asperiores velit qui eligendi est quis ut occaecati minima. Facere qui quae ea. Distinctio consequatur cumque non aut voluptatibus omnis. Quo perferendis sit dolores explicabo explicabo ea est veritatis soluta. Eius maiores aut repellat ut.
+ Unde dolorum qui unde et atque doloremque pariatur. Expedita ipsum temporibus. Voluptates id consectetur consectetur officiis. Praesentium nam illum sunt aut rem laboriosam.
