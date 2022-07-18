@@ -1,10 +1,10 @@
 ---
 title: fuga architecto quia dolores corporis
-author: Marcus DuBuque
-date: Mon Dec 13 2021 17:32:53 GMT-0500 (Eastern Standard Time)
+author: Luke Pouros
+date: Sat Nov 20 2021 11:57:12 GMT-0500 (Eastern Standard Time)
 ---
-Corporis accusamus numquam accusamus. Sint laborum est. Ullam rem libero.
+Placeat id occaecati voluptatem tempora sit tempora totam. Rerum adipisci perferendis quia magni quia ipsam officia consequatur. Deleniti totam doloremque atque libero omnis molestiae dolorum id.
 
- Officia error fugit rerum iure ipsa inventore. Qui animi minima est consectetur placeat molestiae. Modi ex laboriosam occaecati aut quisquam non quis. Voluptatem nostrum id quis fugit esse consequatur occaecati illo.
+ Qui quo sit eum eos eveniet deserunt dignissimos alias. Quo dolor vel. Facilis sed in eius est architecto cupiditate id. Quibusdam accusantium aliquam aut nesciunt et quam doloremque. Beatae quae adipisci et atque dolorem. Dolor nihil et.
 
- Maiores voluptas quos deleniti est. Rerum ab qui vero minima quis. Quasi atque quis. Ratione voluptatem consequuntur asperiores voluptate et fugiat laboriosam est. Cupiditate officia enim consectetur atque.
+ Autem et minus praesentium. Sapiente quod ut amet eos occaecati est nihil. Non et aperiam quam voluptatem ullam aspernatur excepturi. Voluptatem magni sit quisquam cum.
