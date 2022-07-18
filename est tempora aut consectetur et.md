@@ -1,10 +1,10 @@
 ---
 title: est tempora aut consectetur et
-author: Frankie D'Amore I
-date: Wed Apr 06 2022 15:21:25 GMT-0400 (Eastern Daylight Time)
+author: Kelley Franecki
+date: Fri Jun 17 2022 17:00:18 GMT-0400 (Eastern Daylight Time)
 ---
-Voluptas voluptas at quam pariatur. At sint praesentium sit ea odit. Et assumenda occaecati veniam totam molestiae necessitatibus quia. Maxime nulla ea iste. Velit cum blanditiis quia vero mollitia eligendi commodi nulla non. Sit ipsa facilis totam quo quia error amet consequatur quaerat.
+Consequatur dignissimos unde deleniti. Totam quidem aperiam. Est et facere in et porro. Praesentium et illum voluptate cumque incidunt eos enim.
 
- Non animi reiciendis totam. Voluptatum qui a. Et alias voluptas qui ut tempora magnam consequatur repudiandae fugiat. Est voluptate quasi delectus et enim.
+ Qui temporibus eius necessitatibus qui alias placeat velit. Qui distinctio sequi. Consequatur vero iste voluptatem eos officia beatae deserunt. Quaerat quod totam perferendis molestias est maiores molestiae neque.
 
- Maiores dolor perspiciatis tempore. Distinctio rem ex laborum est adipisci et. Sit voluptatum nihil aut sit. Illo et natus soluta sed consequatur. Quaerat ex occaecati ut aut sed voluptatibus nostrum omnis maxime.
+ Vel rerum eaque cupiditate assumenda. Ut labore id veritatis in corporis est. Dicta ut nihil enim ipsam est eos adipisci amet nemo. Sint aut eligendi nisi rerum eum minus repellat. Ad perspiciatis minus rerum.
