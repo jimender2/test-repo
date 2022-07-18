@@ -1,10 +1,10 @@
 ---
 title: qui consequatur adipisci vero perspiciatis
-author: Ross Cole
-date: Fri Dec 10 2021 21:43:51 GMT-0500 (Eastern Standard Time)
+author: Jake Prosacco
+date: Tue May 24 2022 07:07:40 GMT-0400 (Eastern Daylight Time)
 ---
-Velit doloribus fuga. Ea ut dolor asperiores impedit labore rerum est facere. Corrupti laboriosam sunt deserunt ut reprehenderit asperiores rerum et. Placeat explicabo tempore voluptatem quia fugiat exercitationem consequatur.
+Repudiandae assumenda id praesentium sed libero minus. Qui iure illum ea vel sequi dolores qui sequi sunt. Distinctio nam ut dolores.
 
- Magni aut aut. Rerum ex dolores facilis qui commodi. Mollitia ducimus numquam magni amet.
+ Eum deleniti nesciunt. Repudiandae est architecto id. Voluptatem non fugiat enim vel minus tempora dignissimos at. Cumque ut aperiam aut eaque qui accusantium. Enim numquam qui et consequatur est. Ipsa veritatis laborum a beatae quia.
 
- Dolores praesentium laborum omnis perferendis aspernatur pariatur est. Repellendus voluptas id reiciendis. Exercitationem voluptates ratione aut repellat ipsa a. Porro ex qui autem est. Dolor odio est et odit sed laboriosam rerum sed. Nihil cumque delectus recusandae totam molestiae.
+ Ut incidunt vel doloremque. Occaecati facere labore animi excepturi nesciunt laborum porro a. Amet in nobis non. Minus autem aut similique ad quia.
