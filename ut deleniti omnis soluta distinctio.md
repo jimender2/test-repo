@@ -1,10 +1,10 @@
 ---
 title: ut deleniti omnis soluta distinctio
-author: Ernesto Murphy
-date: Tue Mar 01 2022 03:41:28 GMT-0500 (Eastern Standard Time)
+author: Dexter Hermann MD
+date: Tue May 10 2022 14:23:19 GMT-0400 (Eastern Daylight Time)
 ---
-Tempora qui ipsa dolorem et. A voluptatem quasi rerum impedit facilis. Non molestiae voluptate recusandae. Qui in ut esse aut et laborum aut alias sint. Magni corrupti nobis libero voluptatem eos.
+Quo expedita aut quisquam iure necessitatibus. Laboriosam sit alias et est quidem adipisci minus temporibus. Voluptate rerum enim dolorem. Nesciunt corporis ut rerum molestiae.
 
- Sequi repellat explicabo cupiditate nulla est quidem. Totam et esse sed et. Corrupti perferendis similique quis voluptas voluptate in magni. Suscipit velit mollitia hic. Ex quo illum cumque ad provident accusamus.
+ Deleniti consequatur deserunt rerum placeat dolorem placeat voluptatem sunt explicabo. At sunt voluptate dolores. Facilis non atque dolor pariatur inventore velit molestias est. Aut quam nulla voluptatum exercitationem maxime voluptate consequatur non. Voluptatem molestiae similique ipsam aut illum temporibus dolor delectus. Non fugit aut.
 
- Libero fugiat similique sint asperiores voluptas labore. Aliquam minima et et quisquam voluptatem. Magni est id dolorem non. Sit aut aperiam omnis cumque accusantium. Repudiandae eum veniam hic et mollitia ea expedita occaecati. Harum accusantium quis et velit voluptates rerum est deleniti natus.
+ Quaerat debitis nostrum et deleniti eos. Autem et sint atque sit porro ea. Nobis distinctio veritatis. Ut officia corporis ut. Perferendis itaque dolor ut eum. Atque harum pariatur illum est a.
