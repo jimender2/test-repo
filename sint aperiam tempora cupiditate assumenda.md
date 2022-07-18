@@ -1,10 +1,10 @@
 ---
 title: sint aperiam tempora cupiditate assumenda
-author: Bobby Moore
-date: Fri Nov 19 2021 14:02:19 GMT-0500 (Eastern Standard Time)
+author: Lucia Konopelski MD
+date: Thu Nov 11 2021 10:39:12 GMT-0500 (Eastern Standard Time)
 ---
-Consequatur corporis id ea voluptatem sed. Est impedit dolores placeat voluptas laboriosam dolorum dicta. Vel reiciendis suscipit.
+Et provident rerum dolor voluptas alias aliquam corporis quasi. Debitis dolores animi veniam quia excepturi pariatur atque minima quia. Quasi sint deserunt. Aspernatur distinctio fugit velit omnis ratione adipisci unde. Odio nam non saepe similique adipisci tempore sapiente. Ullam ut adipisci eligendi cumque illum.
 
- Molestias odit totam enim dolor eveniet. Odio eveniet magnam qui velit. Numquam ut eius.
+ Et assumenda dolor. Eum aut sed hic. Sunt placeat alias illo nihil quo aut neque iure.
 
- A ut modi qui occaecati et ut fugiat voluptatem. Ut aperiam corporis voluptatem dolor. Minima voluptatibus rerum aut quia soluta doloremque ut. Ut quis voluptates dolor est repellendus dolorum enim nihil. Eius qui iure iure qui nam.
+ Aliquam natus necessitatibus. Incidunt aliquid voluptas eveniet non nam nostrum cum asperiores. Rerum eligendi quia. Quia labore optio.
