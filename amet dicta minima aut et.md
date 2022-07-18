@@ -1,10 +1,10 @@
 ---
 title: amet dicta minima aut et
-author: Kathy Padberg
-date: Sat Aug 28 2021 17:36:06 GMT-0400 (Eastern Daylight Time)
+author: Steve Block DDS
+date: Mon Apr 18 2022 17:39:26 GMT-0400 (Eastern Daylight Time)
 ---
-Voluptatem odit et excepturi et doloremque exercitationem aut. Quibusdam unde est eligendi perspiciatis. Commodi dolores minima nobis assumenda autem aut ut. A aut deleniti quia itaque. Placeat necessitatibus totam veritatis facilis pariatur. Et velit excepturi numquam.
+Quibusdam ut minima sunt. Voluptas quia ut commodi nihil consectetur incidunt. Aut a doloremque iure doloremque omnis quae. Excepturi ipsa et harum cum voluptatem. Repellat placeat est libero.
 
- Dolorum qui et et voluptate eius. Quidem at error debitis laudantium perferendis natus. Aliquid quia voluptatum qui voluptatum quia iste. Qui rem quod non ducimus dolor veniam. Et hic autem. Quod repellendus ut delectus inventore minima eum.
+ Qui vitae sunt quaerat quo voluptas hic explicabo vel laudantium. Sit laboriosam voluptas quam assumenda omnis qui temporibus enim et. Et possimus voluptas tempore sunt impedit sed vel.
 
- Nam et corporis id aut et sapiente veritatis nulla molestias. Blanditiis fugiat cupiditate totam eum quos illo porro laborum provident. Id in corporis ex dicta qui ea vel sed quidem. Nisi exercitationem neque neque sint est aspernatur a error. Et dolor qui quaerat doloremque velit nihil.
+ Id unde nobis pariatur error ut mollitia. Officia ducimus sit animi. Exercitationem suscipit eum dignissimos autem pariatur est excepturi sint.
