@@ -1,10 +1,10 @@
 ---
 title: et repellendus voluptatibus nihil dignissimos
-author: Franklin Wunsch MD
-date: Fri Nov 19 2021 19:29:42 GMT-0500 (Eastern Standard Time)
+author: Fred VonRueden
+date: Mon Mar 21 2022 10:12:00 GMT-0400 (Eastern Daylight Time)
 ---
-Et quia nihil assumenda quos cum. Et qui possimus delectus sed earum molestias aut quod sint. Quis amet dolores dolores voluptas. Distinctio quia voluptatum dolorem doloribus maxime sed soluta. Sapiente illo adipisci repudiandae.
+Aut repudiandae est et suscipit optio provident et voluptatem. Minima dolorem autem pariatur minus et illum voluptatem consectetur. Ut odio nam itaque id voluptas atque voluptas consequuntur quisquam. Ut illum ut.
 
- Quis natus eum qui aut exercitationem sint. Commodi quaerat itaque dolores omnis quisquam sunt est qui. Eum numquam vel quisquam voluptate molestias sint. Et aut aut.
+ Sit consequatur fugiat veritatis id iste. Ut quibusdam fuga laboriosam asperiores necessitatibus quis. Similique hic quam ut et minus. Voluptas vero et assumenda. Non autem nisi.
 
- Temporibus dolor facilis numquam ullam consequuntur quibusdam dicta est aut. Non ut voluptates ab odio. Quia sed non in veniam magni totam occaecati. Expedita voluptatem libero omnis doloribus rerum laborum iure aut. Quibusdam repellat voluptates natus ducimus nemo.
+ Consequatur in deserunt perspiciatis cupiditate facere non debitis et quae. Quos quaerat consequuntur exercitationem sit maxime. Consequatur blanditiis voluptatum porro dignissimos nam nobis molestias qui. Ullam ducimus fuga nisi consectetur. Rerum quae id quaerat consequatur odit quo voluptatum.
