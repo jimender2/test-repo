@@ -1,10 +1,10 @@
 ---
 title: veritatis dolor quis et reiciendis
-author: Erin Gorczany DDS
-date: Fri Oct 22 2021 05:01:11 GMT-0400 (Eastern Daylight Time)
+author: Brad Harris I
+date: Tue Nov 09 2021 00:07:03 GMT-0500 (Eastern Standard Time)
 ---
-Maiores est fuga. Expedita ut eius aut. Cum consectetur quia culpa animi quia quasi quam.
+Commodi assumenda qui earum. Animi dolorum est enim provident doloremque fugiat numquam sunt labore. Beatae quia blanditiis iusto eaque ullam voluptatem.
 
- Facilis recusandae iste aliquid sint incidunt molestiae hic. Fuga neque quia illo doloremque hic totam. Non fugiat nisi illum quam minima cumque nulla dolorum. Vero pariatur et voluptatem totam repellat est earum blanditiis vel.
+ Consequatur praesentium natus nihil deleniti illo. Quia est dolore. Ipsa quia quo sunt.
 
- Expedita explicabo odit omnis consectetur esse. Exercitationem est harum aliquid ipsam molestias sit voluptates eos. Vel illo voluptatum qui et ipsam qui in.
+ Vitae repellat molestiae accusamus nostrum autem. Officiis deserunt ut quia asperiores laborum voluptate soluta. Aut pariatur et expedita et quis quae dicta tempore consequatur.
