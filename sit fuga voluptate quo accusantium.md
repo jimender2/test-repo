@@ -1,10 +1,10 @@
 ---
 title: sit fuga voluptate quo accusantium
-author: Tammy Christiansen
-date: Mon Jul 26 2021 12:45:19 GMT-0400 (Eastern Daylight Time)
+author: Claude Cronin MD
+date: Tue Sep 21 2021 08:04:52 GMT-0400 (Eastern Daylight Time)
 ---
-Reiciendis facilis non accusamus fugiat consequatur vero et illo facilis. Cum ea commodi. Dolor aliquid totam praesentium quaerat voluptatem nihil mollitia voluptatem. Ad rerum iusto in tenetur qui saepe itaque. Sunt esse necessitatibus pariatur laboriosam qui aspernatur laboriosam. Et et nesciunt.
+Commodi blanditiis molestias. Vitae ut quaerat ratione assumenda atque impedit. Quia corporis quos natus labore nam. Voluptatem qui aliquam quod consequatur quae ea.
 
- Dolorem atque consequatur qui necessitatibus laboriosam earum excepturi. Sunt rem iure aut eligendi eos maiores. Delectus quos nisi ut. Et omnis vero libero aut eum. Maiores ut aut nobis placeat eos dolores ipsa et.
+ Ut molestiae voluptatibus sed rem aliquam corrupti facere qui. Earum neque unde praesentium unde architecto assumenda dolor facilis aperiam. At numquam praesentium autem recusandae omnis neque. Itaque voluptatem ipsam.
 
- Aut quia dolor sit modi. Amet suscipit dolor dolores aperiam. Alias illum perferendis laudantium blanditiis ratione nisi sed libero.
+ Hic nam voluptatem esse. Consequatur laborum blanditiis occaecati numquam optio eveniet error saepe dolor. Et non minus impedit autem magni voluptate quo illum.
