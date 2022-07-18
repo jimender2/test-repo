@@ -1,10 +1,10 @@
 ---
 title: iure voluptas quo odit placeat
-author: Brent Christiansen
-date: Thu Jul 14 2022 17:55:24 GMT-0400 (Eastern Daylight Time)
+author: Kate Russel
+date: Sun May 22 2022 05:19:55 GMT-0400 (Eastern Daylight Time)
 ---
-Voluptas dolores doloremque rerum ut. Sint facilis corrupti eaque repellat sit dicta debitis voluptas dicta. Pariatur culpa nihil quisquam. Et sed assumenda qui corporis aut doloremque.
+Soluta et autem. Voluptas non fuga aspernatur error sit doloribus eius doloremque dolorem. Culpa nihil blanditiis nihil eligendi a est. Ut vel cumque vitae explicabo et reprehenderit odit ut expedita. Ducimus veniam reprehenderit beatae autem vitae saepe nam.
 
- Inventore explicabo ea deleniti soluta dignissimos qui. Voluptatem totam ex porro animi impedit velit repellendus. Ab ullam ut illum. Ab ipsum dicta provident unde expedita optio. Sint numquam qui fuga. Sunt laboriosam voluptate recusandae.
+ Quia illum dolore impedit omnis. Eligendi rerum dicta omnis aut magni vitae expedita. A non perferendis animi in maiores. Veniam ea voluptatem natus quia est molestias neque nobis repellat. Ut sit dolorum et aspernatur earum facere. Illo vero autem nesciunt et atque fugiat.
 
- Vitae cupiditate explicabo. Aut ut sapiente corporis voluptatem dolor. Officiis nostrum reprehenderit dolor expedita aut ducimus sed repellendus enim. Corrupti enim odio sint et qui atque. Praesentium temporibus quo autem dolore necessitatibus expedita.
+ Accusamus aut quasi minus ut harum explicabo. Illo velit quo illum tempore fugit omnis voluptatem incidunt. Nobis eligendi occaecati. Sunt vel iusto eum et non. Sed rem sequi consequuntur veniam dolorum necessitatibus.
