@@ -1,10 +1,10 @@
 ---
 title: dicta quia est autem iure
-author: Priscilla Stiedemann II
-date: Sun Mar 06 2022 06:51:29 GMT-0500 (Eastern Standard Time)
+author: Patsy Lockman
+date: Sun Jun 12 2022 00:17:36 GMT-0400 (Eastern Daylight Time)
 ---
-Necessitatibus blanditiis dolore. Quia molestiae eaque rerum vero. Ea assumenda et est. Dolore unde tenetur rerum magnam expedita placeat optio et.
+Quia excepturi unde. Enim accusantium et soluta nulla doloremque culpa sunt. Rerum deserunt rerum ullam illum iure minima et aut. Rerum sed veniam quis non asperiores fuga quia eum adipisci. Cum quia laudantium totam eveniet distinctio ipsam consectetur sed consequuntur. Rerum possimus quia ipsum mollitia incidunt aut omnis iure.
 
- At aut ab molestias voluptatum dolore et sed labore. Sapiente numquam perferendis voluptas voluptatum repudiandae et provident nisi. Consequatur alias voluptatibus provident non. Labore vel nostrum. Sed ut dolorem aspernatur aspernatur et tenetur et.
+ Rerum accusantium itaque placeat. Libero nostrum temporibus consequatur dolore et. Id assumenda animi. Ea soluta eius possimus tempora eligendi.
 
- Voluptatem ut inventore fugit. Natus aperiam suscipit earum voluptas aliquid incidunt quia distinctio officiis. Enim aut perspiciatis et voluptatem quia voluptas. Dolor quo eius ut minima in beatae quaerat aperiam eius. Qui quia eaque qui voluptatem sunt ea voluptas ea. Odio qui fuga enim rerum expedita quia incidunt nobis id.
+ Placeat occaecati est enim nihil repellat recusandae ut. Pariatur vero nam delectus. Rerum sunt doloremque iusto facere. Cupiditate assumenda accusantium perspiciatis. Et quia qui. Ut rem quia quos ipsam optio.
