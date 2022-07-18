@@ -1,10 +1,10 @@
 ---
 title: omnis reprehenderit et iste minima
-author: Rick Cormier
-date: Fri May 20 2022 12:57:23 GMT-0400 (Eastern Daylight Time)
+author: Charles Collier Jr.
+date: Sun Mar 13 2022 14:32:10 GMT-0400 (Eastern Daylight Time)
 ---
-Suscipit sed magnam quisquam. Enim quidem pariatur earum ea aut excepturi. Aliquid qui consequatur tempora ducimus sequi et ut explicabo. Iure aut perspiciatis amet aperiam sit. Facere qui soluta tempora iste ut cumque unde fugiat ducimus. Quae et laborum laboriosam quia error natus expedita.
+Autem est aut sint sed non tempora. Repellat modi iusto similique at incidunt consectetur. Maiores molestias delectus molestiae temporibus. Est recusandae fugit libero sit dignissimos eveniet reprehenderit ipsam. Alias dolores quaerat consequatur architecto et distinctio impedit. Eaque aliquid est ea hic dolor earum earum.
 
- Enim fugit quidem molestiae id et iusto. Assumenda itaque dolor accusamus. Quia modi dignissimos voluptatem consectetur laudantium tenetur. Est perferendis pariatur et molestiae quidem molestias ut fugiat et. Ratione exercitationem optio libero nemo cum sed aut voluptatem.
+ Eos reprehenderit rerum eos magnam. Vel inventore reprehenderit necessitatibus suscipit et recusandae veritatis. Velit doloribus aut qui voluptatem iure. Voluptatem in unde.
 
- Autem cumque architecto molestiae necessitatibus eum. Quis consequatur minima sed nostrum odit suscipit veritatis aut vero. Et sit mollitia vitae illo et similique. Magni dolores eos delectus voluptates sit et. Rerum eius quam laborum et et maxime.
+ Aliquid velit non voluptatem laudantium explicabo in consequuntur fuga maiores. In quasi maxime in aspernatur. Illo cum est rerum. Ut nemo ullam magnam molestias officia et nihil tempora.
