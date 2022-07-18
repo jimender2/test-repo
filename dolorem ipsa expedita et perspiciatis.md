@@ -1,10 +1,10 @@
 ---
 title: dolorem ipsa expedita et perspiciatis
-author: Joseph Koch
-date: Sat Jan 15 2022 14:21:08 GMT-0500 (Eastern Standard Time)
+author: Wendy Hoeger DDS
+date: Sat Mar 19 2022 19:06:55 GMT-0400 (Eastern Daylight Time)
 ---
-Porro blanditiis velit quia minima quasi rerum nulla fugiat. Odio suscipit sed incidunt ad et aut delectus. Fuga quae consequatur accusantium nesciunt cumque nostrum voluptate velit vel.
+Ratione a numquam culpa consequatur commodi et fugiat molestiae unde. Totam sint vel soluta explicabo voluptatem similique et dolores. Voluptatibus et maxime est optio sit quas quos excepturi ut. Perferendis commodi est rerum neque dolorem commodi doloremque illo culpa.
 
- Dolorem sapiente minima. Distinctio qui eligendi. Non sed et. Veritatis molestiae autem dolorum cupiditate ut omnis est recusandae rerum.
+ Quas exercitationem accusamus molestias quo. Et quod est iusto ratione. Accusamus magni id aliquid et.
 
- Occaecati iste debitis ducimus. Iure et et voluptas nesciunt debitis. Repellat omnis consectetur maxime provident itaque. Optio vel qui ex officiis laborum ad est temporibus.
+ Maxime odio ea. Nostrum voluptatem ut quo natus. Qui et facilis enim necessitatibus similique. Voluptate molestiae quibusdam aut provident magnam commodi. Suscipit facilis porro assumenda aut nesciunt.
