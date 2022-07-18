@@ -1,10 +1,10 @@
 ---
 title: enim rerum voluptas iure doloribus
-author: Bryant Franecki
-date: Mon Jul 26 2021 12:16:06 GMT-0400 (Eastern Daylight Time)
+author: Rosie Dooley
+date: Tue Mar 15 2022 07:05:59 GMT-0400 (Eastern Daylight Time)
 ---
-Repudiandae minus voluptatem. Ipsam iure et autem sint quaerat. Tenetur rerum reiciendis eius necessitatibus ducimus. Ut facilis doloremque quidem incidunt.
+Rerum molestiae distinctio omnis ad quos nulla nobis repudiandae corrupti. Necessitatibus voluptatum ullam et. In error voluptate quasi aut quod. Natus ut ducimus porro delectus et atque quos repellat quae.
 
- Minus sint beatae eos placeat rerum mollitia doloremque necessitatibus. Deleniti et quos eaque illum iure vitae qui. Natus repellendus laudantium nulla sit dolores et occaecati.
+ Autem ipsam quas ipsa molestiae laudantium suscipit iste. Quo ut dolore incidunt architecto quia. Qui et quis similique et est omnis dolorem aut consectetur. Temporibus autem quis eos rem.
 
- Qui quia ut. Facilis velit necessitatibus voluptas. Ullam corporis corporis sequi dolore asperiores dolorem nostrum molestiae.
+ Vero qui earum optio quaerat qui. Odio est et aliquam neque quasi rerum quia et. Sequi tenetur cupiditate iure. Cupiditate eum sint sunt est accusamus.
