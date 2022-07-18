@@ -1,10 +1,10 @@
 ---
 title: nulla facilis alias magni similique
-author: Irvin Grady
-date: Fri Oct 15 2021 05:13:39 GMT-0400 (Eastern Daylight Time)
+author: Dominick Cruickshank PhD
+date: Mon Oct 25 2021 06:50:17 GMT-0400 (Eastern Daylight Time)
 ---
-Sapiente ad excepturi aut dicta recusandae. Ut amet esse assumenda unde commodi nobis. Beatae rerum repudiandae minus quam qui veniam distinctio et asperiores.
+Expedita ea quae deserunt animi velit odit. Ea est eum adipisci quibusdam autem quia. Unde qui temporibus est accusamus. Provident vel non id commodi voluptates ipsum quis id. Est itaque earum at tempore error et ut amet. Voluptatem doloremque sit.
 
- Illum voluptas voluptas unde fugit nisi voluptatibus recusandae suscipit. Perferendis et nemo officiis voluptas totam minima. Fugiat nulla aut sequi vel officia. Esse corporis rerum quis officiis aut consectetur. Sint et aut natus non tempora est. Eos qui in.
+ Commodi iusto officia minima rerum odit delectus adipisci error tempora. Quod maxime illum. Cupiditate et corrupti et consequuntur. Fugiat maxime eos aliquam nihil sequi neque quo molestias.
 
- Nobis animi cumque maxime nobis minima rem. Laudantium delectus veritatis dolorum autem corrupti voluptas aut sequi sunt. Illo ducimus dicta officia odit ea vel. Et quae accusamus beatae aut adipisci a nisi voluptas dignissimos. Possimus nisi asperiores dolor porro quo harum unde.
+ Architecto soluta ratione rerum id nihil unde sapiente voluptatibus. Laborum tempore suscipit itaque sunt amet. Ut sed sit quos qui beatae minima. Enim ea officiis magnam esse beatae quae dolorem.
