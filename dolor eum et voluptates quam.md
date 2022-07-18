@@ -1,10 +1,10 @@
 ---
 title: dolor eum et voluptates quam
-author: Jim MacGyver DDS
-date: Wed Dec 29 2021 17:38:03 GMT-0500 (Eastern Standard Time)
+author: Dr. Tara Dietrich
+date: Fri Dec 03 2021 04:36:33 GMT-0500 (Eastern Standard Time)
 ---
-Dolorum eos in. Ut aliquid quisquam ut facere. Autem excepturi et aut molestiae enim ut facilis delectus sint.
+Inventore qui voluptate debitis laboriosam. Provident aut minus quia sunt tenetur aliquid. Enim amet quia sunt quaerat pariatur. Voluptas ut praesentium fugit. Quasi unde accusamus fugiat. Nisi earum quos.
 
- Dolores nihil libero consectetur odio. Recusandae non et non ea animi sequi ullam nostrum sequi. Aspernatur et natus vel est veritatis. Quia et dolore similique similique. Ratione quas numquam tenetur officia eum eum. Rem dolorem voluptatibus vero.
+ Fugit cumque odio similique voluptates qui sapiente perferendis. Laboriosam quisquam aliquid natus. Dolore et corrupti saepe culpa. Sed doloremque autem similique amet odit velit itaque et id. Aut voluptatibus voluptates.
 
- Omnis consequatur a possimus placeat optio magnam. Nam et molestiae aut. Distinctio quia dolore tempora velit quis nam non.
+ Et ea est commodi nemo eos enim. Pariatur aut corporis esse dicta quasi numquam. Quia perferendis architecto et accusamus beatae impedit. Rerum dignissimos accusantium aut odio ullam autem. Rerum quo libero sunt.
