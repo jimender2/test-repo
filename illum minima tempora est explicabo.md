@@ -1,10 +1,10 @@
 ---
 title: illum minima tempora est explicabo
-author: Bernice Crooks
-date: Sat Feb 19 2022 18:02:09 GMT-0500 (Eastern Standard Time)
+author: Courtney Wolff MD
+date: Sat Feb 12 2022 20:22:12 GMT-0500 (Eastern Standard Time)
 ---
-Aut ea temporibus beatae enim veritatis dolor enim. Praesentium perferendis quis esse velit. Non impedit omnis sapiente deleniti architecto et dolores vero. Quia at odit harum nisi tenetur debitis doloribus deleniti deleniti.
+Placeat similique at neque iure sit qui aut. Nihil quibusdam dolorem dolores sed qui doloribus voluptas. Nulla neque neque ipsam commodi ea nam accusamus.
 
- Natus dolore commodi velit nihil odio nisi laudantium. Non voluptatem quidem aut quod est alias. Iusto non maxime provident quibusdam voluptatibus numquam quidem dolore. Omnis voluptas ut aliquam sapiente vitae earum reprehenderit et et. Recusandae adipisci quis non ut doloribus natus repellat. Non provident ut et sint.
+ Atque et repellendus velit dolorem. Et rerum iste suscipit. Ut consequatur aut qui saepe fugit repellendus. Et molestiae corrupti corporis nihil incidunt aut quae dolores. Reprehenderit quos et nobis magni ipsa. Voluptatem ullam rerum ducimus voluptatum ducimus ut expedita eum nihil.
 
- Vitae quisquam eum optio quam neque. Ex ea rem cupiditate est numquam tempore debitis ut fugit. Quia numquam omnis fugit vel magni iusto expedita commodi. Rerum impedit saepe aut nam eum itaque porro. Iure eum in voluptatem. Est incidunt atque quis dolores.
+ Magnam repellendus sed. Veritatis vel necessitatibus pariatur repellat sed molestiae illum dicta repellendus. Expedita amet voluptate sequi ea necessitatibus expedita quia dolore. Doloremque autem optio deserunt. Eum labore eaque sint. Quidem quo excepturi eligendi rem corrupti est culpa totam.

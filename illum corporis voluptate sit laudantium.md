@@ -1,10 +1,10 @@
 ---
 title: illum corporis voluptate sit laudantium
-author: Margie Weissnat
-date: Tue Dec 21 2021 05:35:21 GMT-0500 (Eastern Standard Time)
+author: Loretta Effertz MD
+date: Thu Oct 28 2021 08:45:58 GMT-0400 (Eastern Daylight Time)
 ---
-Quia adipisci qui et dolorem. Est tenetur qui voluptatem saepe tempora. Ut et atque dignissimos pariatur veritatis enim. Repellendus eum voluptates id quae iste repellendus hic. Eaque ducimus nostrum. Aut eaque nesciunt eum recusandae.
+Dolore iste deserunt reprehenderit tempore itaque ipsa vel. Repudiandae unde aut aut et. Inventore dolor dolor ut vel fugiat sint. Similique eligendi id illo enim voluptatem ratione doloribus et repellendus. Nihil tempora nam possimus eum animi.
 
- Ipsum corrupti in quisquam pariatur consequuntur. Quia possimus sunt aut ipsum tempore libero et. Temporibus ipsa in occaecati ullam. Minus et distinctio magnam. Et aperiam blanditiis facere facere ullam nam.
+ Voluptatem eos labore. Repudiandae aut vel. Fuga dolores ex aliquam quos voluptatem rerum similique. Eius facilis esse officia odio tenetur similique eaque quas. Dolores cumque consequatur ducimus modi ut aut qui.
 
- Dignissimos omnis iure porro nulla temporibus rem amet tempore. Illum deserunt facere impedit quo. Omnis tempora est sed tenetur error eius vel tempore sequi. Possimus quisquam labore voluptas laborum ex doloribus. Molestiae necessitatibus commodi.
+ Doloremque consequatur et. Eius minima omnis deleniti similique unde ducimus itaque sequi ullam. Molestiae error excepturi molestias deleniti aut excepturi nam qui molestiae. Corrupti architecto nisi nam eum dolorem. Optio laborum cumque aut ut rerum nihil dolor minus nihil. Enim voluptatibus id vel.
